@@ -137,7 +137,7 @@
 
 12- فاطیما فخاریان: [Raffi](https://www.youtube.com/channel/UCik85KHM24HdK_irDqn5G6w) - هنرمند و خواننده مصری ساکن کانادا فعال در حوزه موسیقی کودکان
 
-[Hani Niroo](https://soundcloud.com/hani6) دو آلبوم برای کودکان: [Songs of Norouz](https://open.spotify.com/album/03aPZcybHx4XzvjKrsBadd)، [Songs of Pardis](https://open.spotify.com/album/7FwHzxtZmm0RqJnED2SShl)
+از [Hani Niroo](https://soundcloud.com/hani6) دو آلبوم برای کودکان: [Songs of Norouz](https://open.spotify.com/album/03aPZcybHx4XzvjKrsBadd)، [Songs of Pardis](https://open.spotify.com/album/7FwHzxtZmm0RqJnED2SShl)
 
 [خانم آیتک آژنگ زاد](https://melovaz.ir/aitak-ajangzad-cheshmak) - [آلبوم چشمک](https://melovaz.ir/aitak-ajangzad-cheshmak) موسیقی برای گروه سنی 2 تا 5 سال
 
@@ -151,416 +151,209 @@
 
 [کانال یوتیوب طه رسولی](https://www.youtube.com/channel/UCQOBedlc-7Tu4gONQLmk2uQ) به نام «آکادمی طراحی بازی طه» 
 
-15- امیلی امرایی: (https://www.audible.ca/pd/Laurie-Berkners-Song-and-Story-Kitchen-Audiobook/B07H4SMF8L)برنامه] (Song and Story Kitchen) در Audible تلفیقی از موسیقی و پادکست
+15- امیلی امرایی: [برنامه (Song and Story Kitchen)](https://www.audible.ca/pd/Laurie-Berkners-Song-and-Story-Kitchen-Audiobook/B07H4SMF8L) در Audible تلفیقی از موسیقی و پادکست
 
+[رمان فانتزی ماهواره](https://www.gisoom.com/book/11600554/کتاب-ماه-واره-پسری-که-در-فضا-به-دنیا-آمد/) ترجمه بامداد موجانی از انتشارات شهر قلم - [نسخه انگلیسی Satellite](https://www.google.ca/books/edition/Satellite/UYqRDwAAQBAJ?hl=en&gbpv=1&dq=nick+lake&printsec=frontcover) پسری که مادرش فضانورد هست و قراره که فضانوردها برن و توی فضا بچه‌دار بشن و اون بچه تا 16 سالگی نمی‌تونه بیاد روی زمین…
 
+[کتاب (جنگ بزرگ خانه درختی)](https://shghalam.ir/product/detail/674/جنگ-بزرگ-خانه-درختي) - [نسخه انگلیسی The Great Treehouse War](https://www.google.ca/books/edition/The_Great_Treehouse_War/hOHkDAAAQBAJ?hl=en&gbpv=1&dq=treehouse+war&printsec=frontcover) برای کودکانی که بحران طلاق رو گذروندن
 
-رمان فانتزی (https://www.gisoom.com/book/11600554/کتاب-ماه-واره-پسری-که-در-فضا-به-دنیا-آمد/)ماهواره] ترجمه بامداد موجانی از انتشارات شهر قلم - (https://www.google.ca/books/edition/Satellite/UYqRDwAAQBAJ?hl=en&gbpv=1&dq=nick+lake&printsec=frontcover)نسخه انگلیسی] (Satellite) پسری که مادرش فضانورد هست و قراره که فضانوردها برن و توی فضا بچه دار بشن و اون بچه تا 16 سالگی نمیتونه بیاد روی زمین…
 
+[دیوید والیامز](https://en.wikipedia.org/wiki/David_Walliams) - داستان‌های کودکان طنز در ادبیات کودک - [کتاب مادربزرگ گانگستر](https://www.gajmarket.com/کتاب-مادربزرگ-گانگستر-بزرگ-مجموعه-دیوید-والیامز)
 
+16- شادی: [مجله سیزده](https://13mag.ir/#) - مجله فرهنگی ادبی نوجوانان - برخی از نویسندگان: احسان عبدی‌پور، اشکان خطیبی
 
-(https://shghalam.ir/product/detail/674/جنگ-بزرگ-خانه-درختي)کتاب] (جنگ بزرگ خانه درختی) (https://www.google.ca/books/edition/The_Great_Treehouse_War/hOHkDAAAQBAJ?hl=en&gbpv=1&dq=treehouse+war&printsec=frontcover)- نسخه انگلیسی ](The Great Treehouse War) برای کودکانی که بحران طلاق رو گذروندن
+[سولماز نراقی](https://www.instagram.com/solmaz_naraghi/?hl=en) - موسیقی دستگاه‌های سنتی ایرانی برای کودکان
 
+17- آزاده: [پادکست قصه‌های سوسن](https://podcasts.apple.com/us/podcast/قصه-های-سوسن-ghessehaye-susan/id1489852768) از سوسن مقصودلو که قصه‌های قدیمی ایرانی رو تعریف می‌کنن.
 
+[لطف تمبک](https://www.mahoor.com/fa/cd/415-charm-of-tombak) از بهزاد میرزایی
 
-(https://en.wikipedia.org/wiki/David_Walliams)دیوید والیامز] - داستان های کودکان طنز در ادبیات کودک - (https://www.gajmarket.com/کتاب-مادربزرگ-گانگستر-بزرگ-مجموعه-دیوید-والیامز)کتاب] مادربزرگ گانگستر 
+[گروه آدمک](https://www.instagram.com/adamakmusic/?hl=en)
 
+18- سولماز برق‌گیر: [کتاب هیولای رنگ‌ها](https://www.google.ca/books/edition/The_Colour_Monster/G7F9tAEACAAJ?hl=en) - داستان رنگ‌ها که هر رنگ رو ربط می‌ده به یه احساس
 
+[کارتون Doctor Binocs](https://www.youtube.com/channel/UCxlJ45KjG4XVcQ_hd8j227A) در یوتیوب
 
-16- شادی: (https://13mag.ir/#)مجله سیزده] - مجله فرهنگی ادبی نوجوانان - برخی از نویسندگان: احسان عبدی پور، اشکان خطیبی
+[کارتون پت پستچی](https://www.aparat.com/result/کارتون_پت_پستچی)
 
 
+19- ستاره: [کارتون Inside Out](https://www.imdb.com/title/tt2096673/)
 
-(https://www.instagram.com/solmaz_naraghi/?hl=en)سولماز نراقی] - موسیقی دستگاه های سنتی ایرانی برای کودکان
 
+# تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
 
 
-17- آزاده: (https://podcasts.apple.com/us/podcast/قصه-های-سوسن-ghessehaye-susan/id1489852768)پادکست] قصه های سوسن از سوسن مقصودلو که قصه های قدیمی ایرانی رو تعریف می کنن.
+## جلسه شماره ۱۸
 
+**این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.**
 
+**پنجشنبه ۳ تیر ۱۴۰۰ ////// ۲۴ ژوئن ۲۰۲۱ - ۱۱ شب به وقت تهران**
 
-(https://www.mahoor.com/fa/cd/415-charm-of-tombak)لطف تمبک] از بهزاد میرزایی
+1- علی بندری: [کانال یوتوب Colin and Samir](https://www.youtube.com/channel/UCamLstJyCa-t5gfZegxsFMw) - تحلیل و بررسی بازار تولید محتوا Creator Economy که [پادکست](https://www.colinandsamir.com/podcast) هم دارن
 
+تایلر کوئن که یه [پادکست](https://conversationswithtyler.com/) مصاحبه‌ای داره. [پست جدید](https://marginalrevolution.com/marginalrevolution/2021/06/what-should-i-ask-zeynep-tufekci.html)  در مورد مصاحبه چند روز دیگه‌اش  با زینب توفکچی - از زینب توپکچی چی بپرسم؟
 
+[مقاله Inside Xinjiang's Prison State](https://www.newyorker.com/news/a-reporter-at-large/china-xinjiang-prison-state-uighur-detention-camps-prisoner-testimony) در نیویورکر درباره استان سین کیانگ در شمال چین که اویغورها توش ساکن هستن - این گزارش شکل جدیدی از ژورنالیست هست که پیشنهاد می‌شه حتماً ببینید.
 
-(https://www.instagram.com/adamakmusic/?hl=en)گروه آدمک]
+2- علی حجوانی: [مقاله‌ای به نام What's the Most Significant Hack in History](https://gizmodo.com/whats-the-most-significant-hack-in-history-1847032937) در مورد مهم‌ترین هک‌های تاریخ
 
+[پادکست (Darknet Diaries)](https://darknetdiaries.com/) که در هر اپیزود در مورد یک قصه هک یا دارک وب صحبت می‌کنه. [اپیزود 29](https://darknetdiaries.com/episode/29/) در مورد Stuxnet
 
+3- محمدرضا فرهادی‌پور: [کتاب علی و نینو](https://www.ketabchin.com/%D8%B9%D9%84%DB%8C-%D9%86%DB%8C%D9%86%D9%88/book/61091860) نوشته قربان سعید - [کتاب The Orientalist](https://www.google.ca/books/edition/The_Orientalist/Uy8sCqgolNMC?hl=en&gbpv=0) نوشته تام ریس درباره این که قربان سعید کیست.
 
-18- سولماز برق گیر: (https://www.google.ca/books/edition/The_Colour_Monster/G7F9tAEACAAJ?hl=en)کتاب] هیولای رنگ ها - داستان رنگ ها که هر رنگ رو ربط میده به یه احساس
+[کتاب درون آینه](https://www.iranketab.ir/profile/9092-%D9%85%D8%AD%D9%85%D8%AF%D8%B9%D9%84%DB%8C-%D9%85%DB%8C%D8%B1%D8%A8%D8%A7%D9%82%D8%B1%DB%8C) و آنچه آلیس در آن دید نوشته لوییس کارول
 
+[کتاب بی‌خبری (یا جهالت)](https://www.iranketab.ir/book/3297-ignorance) نوشته میلان کوندرا - صحبتی داره کوندرا در مورد [یوناس هالگریمسون](https://en.wikipedia.org/wiki/J%C3%B3nas_Hallgr%C3%ADmsson).
 
+[مجله اقتصادی بنگاه](https://t.me/exitvoiceloyalty/1535)
 
-(https://www.youtube.com/channel/UCxlJ45KjG4XVcQ_hd8j227A)کارتون] Doctor Binocs در یوتیوب
+[پادکست اکونقال](https://www.instagram.com/econaghal/)
 
+4- رویا کریمیان: [کتاب شرق بهشت](https://www.google.ca/books/edition/East_of_Eden/_nfCDwAAQBAJ?hl=en&gbpv=1&dq=east+of+eden&printsec=frontcover) از جان اشتاین بک - [کتاب Journal of a Novel](https://www.google.ca/books/edition/Journal_of_a_Novel/Kqa-LNTu_TkC?hl=en&gbpv=1&dq=journal+of+a+novel&printsec=frontcover) روزمره‌نویسی جان اشتاین بک در زمان نوشتن کتاب شرق بهشت
 
+[کتاب Gifts of Imperfection](https://www.google.ca/books/edition/The_Gifts_of_Imperfection/5DT91ar7MwkC?hl=en&gbpv=1&dq=gifts+of+imperfection&printsec=frontcover)
 
-(https://www.aparat.com/result/کارتون_پت_پستچی)کارتون] پت پستچی
+[مصاحبه ماریا پوپوا با تیم فریس](https://tim.blog/2014/10/21/brain-pickings/) - روش نت‌برداری ماریا پوپوا به نام ()
 
+5- مریم ماه: [کتاب The Bomber Mafia](https://www.google.ca/books/edition/The_Bomber_Mafia/_gQXEAAAQBAJ?hl=en&gbpv=1&dq=the+bomber+mafia&printsec=frontcover) از مالکوم گلدول که شنیدن [کتاب صوتیش](https://www.audible.ca/pd/The-Bomber-Mafia-Audiobook/1735803227) بیشتر از خوندنش پیشنهاد می‌شه چون تجربه جالبی هست شنیدنش.
 
+علی حجوانی: [کمپانی تولید محتوای پوشکین](https://www.pushkin.fm/news/pushkin-executive-producer-mia-lobel-featured-in-pro-sound-news/) - میا لوبل
 
-19- ستاره: (https://www.imdb.com/title/tt2096673/)کارتون] Inside Out
+[مستند Coded Bias](https://www.netflix.com/ca/title/81328723) خانمی که در MIT علوم کامپیوتر خونده در مورد ایرادات الگوریتمی‌ای که دوربین‌های تشخیص خطا داشتند صحبت کرده. از این دوربین‌ها در انگلیس و چین استفاده شده. کلید واژه‌ای برای مطالعه: Credit Score
 
+[خبری در مورد منع خرید محصولات سولار سیستم از چین](https://www.politico.com/news/2021/06/21/biden-solar-ban-china-forced-labor-495330) که بایدن اخیراً امضا کرده.
 
+6- پیمان بشردوست: [شرکت دیپ مایند](https://deepmind.com/) که در زمینه هوش مصنوعی و یادگیری ماشین فعالیت می‌کنه.
 
+[پروژه آلفا گو](https://deepmind.com/research/case-studies/alphago-the-story-so-far) در مورد پروژه‌ای که از طریق یادگیری ماشین بازی گو رو به کامپیوتر یاد دادن و تونستن قهرمان گو جهان رو ببرن.
 
+[پروژه آلفا فولد](https://deepmind.com/research/case-studies/alphafold) در مورد تاشدگی پروتئین‌ها که با استفاده از اون می‌خوان تعدادی از بیماری‌ها رو درمان کنن.
 
+[صفحه اینستاگرام ملانصرالدین](https://www.instagram.com/mollanasraddinx/?utm_medium=copy_link) که تصاویر قدیم ایران از 100-120 سال پیش رو از جاهای مختلف جمع‌آوری کردن و منتشر می‌کنن.
 
+[کانال یوتیوب Deep Podcast](https://www.youtube.com/c/DeepPodcast) که در مورد دوران قاجار به خصوص آقامحمدخان قاجار ویدیو می‌سازن.
 
+7- محمد: [کانال یوتوب ضیا صدر](https://www.youtube.com/c/ziyasadr) در مورد رمزامرزها - روم کلاب هاوس سهیل مرادی
 
-تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
+8- بابک معدن دار: [کتاب The Principle of Hope](https://www.google.ca/books/edition/The_Principle_of_Hope/kJW_nQEACAAJ?hl=en) مبانی امید نوشته [ارنست بلاخ](https://en.wikipedia.org/wiki/Ernst_Bloch) فیلسوف و روانشناس با نگاه یوتوپیایی
 
+[کتاب دروغ‌هایی که به خود می‌گوییم](https://shahreketabonline.com/Products/Details/255215/%D8%AF%D8%B1%D9%88%D8%BA_%D9%87%D8%A7%DB%8C%DB%8C_%DA%A9%D9%87_%D8%A8%D9%87_%D8%AE%D9%88%D8%AF_%D9%85%DB%8C_%DA%AF%D9%88%DB%8C%DB%8C%D9%85) نوشته جان فردریکسون
 
+[کتاب آناتومی ویرانسازی انسان](https://shahreketabonline.com/Products/Details/7212/%D8%A2%D9%86%D8%A7%D8%AA%D9%88%D9%85%DB%8C_%D9%88%DB%8C%D8%B1%D8%A7%D9%86%D8%B3%D8%A7%D8%B2%DB%8C_%D8%A7%D9%86%D8%B3%D8%A7%D9%86_%D9%BE%D8%B1%D8%AE%D8%A7%D8%B4%D8%AC%D9%88%DB%8C%DB%8C_%D9%88_%D9%88%DB%8C%D8%B1%D8%A7%D9%86%D8%B3%D8%A7%D8%B2%DB%8C) نوشته اریک فروم
 
+9- بهروز جعفرنژاد: [تئوری «پردازش پیش‌بینی» - Predictive coding](https://en.wikipedia.org/wiki/Predictive_coding) مدلی که به مغز به عنوان یک ماشین پیش‌بینی کننده نگاه می‌کنه. - مجله آنلاین Ian
 
-جلسه شماره ۱۸
+علی بندری: در مورد کارکرد مغز در بودجه‌بندی بدن و پیش از هر چیز، پیشبینی هر لحظه در [کتاب احساسات چگونه ایجاد می‌شوند](https://bpluspodcast.com/podcast/second-season/%D8%A7%D8%AD%D8%B3%D8%A7%D8%B3%D8%A7%D8%AA-%D8%A7%D8%B2-%DA%A9%D8%AC%D8%A7-%D9%85%DB%8C%D8%A2%DB%8C%D9%86%D8%AF/) از [لیزا فلدمن برت](https://lisafeldmanbarrett.com/) 
 
 
+[در مورد نکات مثبت سوشیال مدیا](https://perspectiveix.substack.com/p/social-media-mental-health?r=5ahn8&utm_campaign=post&utm_medium=web&utm_source=copy) - شماره‌ی آخر [خبرنامه بهروز جعفرنژاد](https://perspectiveix.substack.com/p/social-media-mental-health)
 
+[خبرنامه Hidden Brain](https://news.hiddenbrain.org/)
 
-این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.
+10- مریم ظفرطلب: [اپیزود 57 بی پلاس: دلایل خوب برای احساسات بد](https://bpluspodcast.com/podcast/fourth-season/%D8%AF%D9%84%D8%A7%DB%8C%D9%84-%D8%AE%D9%88%D8%A8-%D8%A8%D8%B1%D8%A7%DB%8C-%D8%A7%D8%AD%D8%B3%D8%A7%D8%B3-%D9%87%D8%A7%DB%8C-%D8%A8%D8%AF/)
 
+11- مدی گلونت: [برایان وکت](https://en.wikipedia.org/wiki/Brian_Wecht) - استاد تمام فیزیک نظری در دانشگاهی در لندن - کلیپ‌های جالبی دریوتیوب به نام [Ninja Sex Party](https://www.youtube.com/user/ninjasexparty)  می‌سازه
 
+12- شایان: [کتاب Speculation, Trading and Bubbles](https://www.google.ca/books/edition/Speculation_Trading_and_Bubbles/jHbeAwAAQBAJ?hl=en&gbpv=1&dq=speculation+trading+and+bubbles&printsec=frontcover) نوشته ژوزه شینک - اقتصاددان استاد دانشگاه کلمبیا -  در مورد مسئله حباب در اقتصاد
 
+13- نیلا والا: [پادکست Philosophize This](https://open.spotify.com/show/2Shpxw7dPoxRJCdfFXTWLE) از استیون وست - تعریف فلسفه به صورت ساده و با کمدی
 
-پنجشنبه ۳ تیر ۱۴۰۰ ////// ۲۴ ژوئن ۲۰۲۱ - ۱۱ شب به وقت تهران 
+[کتاب Ralph Tells a Story](https://www.google.ca/books/edition/Ralph_Tells_a_Story/5vZ8tgAACAAJ?hl=en) برای کودکان زیر 5 سال [رالف قصه می‌نویسد](https://hodhod.com/product/%D8%B1%D8%A7%D9%84%D9%81-%D9%82%D8%B5%D9%87-%D9%85%DB%8C-%D9%86%D9%88%DB%8C%D8%B3%D8%AF) ترجمه احمد تصویری از انتشارات پرتقال
 
+[کتاب The Whole-brain Child](https://www.google.ca/books/edition/The_Whole_Brain_Child/tPnEthnZ4nQC?hl=en&gbpv=1&dq=whole+brain+child&printsec=frontcover)
 
+## تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
 
+# جلسه شماره ۱۷
 
-1- علی بندری: کانال (https://www.youtube.com/channel/UCamLstJyCa-t5gfZegxsFMw)یوتوب ]Colin and Samir - تحلیل و بررسی بازار تولید محتوا Creator Economy-(https://www.colinandsamir.com/podcast)  پادکست] هم دارن
+**این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.**
 
+**پنجشنبه ۲۷ خرداد ۱۴۰۰ ////// ۱۷ ژوئن ۲۰۲۱ - ۱۱ شب به وقت تهران**
 
+۱- علی بندری: [کتاب تاریخ مدرن ایران](https://www.google.ca/books/edition/Iran/omo3DwAAQBAJ?hl=en&gbpv=0) نوشته [عباس امانت](https://en.wikipedia.org/wiki/Abbas_Amanat) که از 1500 میلادی یعنی شروع دوره صفوی به بعد رو در موردش صحبت می‌کنه.
 
-تایلر کوئن که یه (https://conversationswithtyler.com/)پادکست] مصاحبه ای داره.(https://marginalrevolution.com/marginalrevolution/2021/06/what-should-i-ask-zeynep-tufekci.html?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+marginalrevolution%2Ffeed+%28Marginal+Revolution%29) پست ]جدید در مورد مصاحبه چند روز دیگه اش  با زینب توفکچی - از زینب توپکچی چی بپرسم؟
+۲- مقاله‌ای درباره پدر به نام [Evolution of the dad]((https://knowablemagazine.org/article/living-world/2021/evolution-dad) در مورد این که چرا نقش پدر در انسان‌ها با نقش پدر در بقیه موجودات فرق داره؟
 
+در کتاب «دلایل خوب برای احساس های بد» هم اشاره ای به این موضوع می‌کند. ([خلاصه: اپیزود 57 بی پلاس](https://bpluspodcast.com/podcast/fourth-season/%D8%AF%D9%84%D8%A7%DB%8C%D9%84-%D8%AE%D9%88%D8%A8-%D8%A8%D8%B1%D8%A7%DB%8C-%D8%A7%D8%AD%D8%B3%D8%A7%D8%B3-%D9%87%D8%A7%DB%8C-%D8%A8%D8%AF/))
 
+۳- مروارید زندی‌چی: [مونیکا لوینسکی درباره پابلیک شیمینگ (شرمساری عمومی) در تد تاک](https://www.ted.com/talks/monica_lewinsky_the_price_of_shame?language=en) در مورد شرم. [مصاحبه با جان الیور](https://www.youtube.com/watch?v=Yq7Eh6JTKIg). 
 
-(https://www.newyorker.com/news/a-reporter-at-large/china-xinjiang-prison-state-uighur-detention-camps-prisoner-testimony)مقاله ]Inside Xinjiang's Prison State  در نیویورکر درباره استان سین کیانگ در شمال چین که اویغورها توش ساکن هستن - این گزارش شکل جدیدی از ژورنالیست هست که پیشنهاد میشه حتما ببینید.
+۴-مریم ماه: [وبسایت یک پزشک](https://www.1pezeshk.com) که در مورد مسائل مختلفی مثل تکنولوژی‌های مختلف و معرفی فیلم و این جور چیزها توش مطلب گذاشته می‌شه. خبرنامه هم داره که با عضویت در اون می‌تونید مطالب جالبی رو هر روز توی ایمیل‌تون دریافت کنید.
 
+[کتاب Amazon Unbound]((https://www.google.ca/books/edition/Amazon_Unbound/oJwtEAAAQBAJ?hl=en&gbpv=0) از برد استون درمورد جف بزوس و آمازون
 
+[اپیزود 59 پادکست بی پلاس](https://bpluspodcast.com/podcast/fourth-season/چین/) در مورد چین که مطالب خیلی خوبی در مورد چین
 
-2- علی حجوانی:(https://gizmodo.com/whats-the-most-significant-hack-in-history-1847032937) مقاله ]ای به نام What's the Most Significant Hack in History  در مورد مهمترین هک های تاریخ
+۵- محمدرضا فرهادی: [کتاب یک روز از زندگی ایوان دنیسوویچ](https://nashrenow.com/ادبیات-داستانی-معاصر-جهان/389-یک-روز-از-زندگی-ایوان-دنیسوویچ.html) از الکساندر سولژنیتسین - گفته می‌شه با انتشار این کتاب دیکتاتوری استالین ترک برداشت. - [کتاب خانه ماتریونا](https://nashremahi.com/author_book/آلکساندر-سولژنیتسین/) هم که اون هم در مورد دیکتاتوری هست.
 
+[کتاب آداب دیکتاتوری](http://www.goman-pub.com/HSP_Shop/product.php?proId=151977) از فرانک دیکوتر که اون هم یک فصل در مورد شوروی و دیکتاتوری استالین داره.
 
+آقای باستانی پاریزی خاطرات دست اول بی‌نظیری رو داره که کتاب‌های زیادی هم داره که همه پیشنهاد می‌شه. مقاله‌ای دارن در مورد اهمیت جاده ابریشم برای ایران.
 
-(https://darknetdiaries.com/)پادکست] (Darknet Diaries) که در هر اپیزود در مورد یک قصه هک یا دارک وب صحبت میکنه.(https://darknetdiaries.com/episode/29/)اپیزود] 29 در مورد Stuxnet
+[مستند مردانی که آمریکا را ساختند](https://en.wikipedia.org/wiki/The_Men_Who_Built_America) - این مستند در مورد 10 نفر هست که در آمریکا تاثیر زیادی داشتند.
 
+[کتاب شیکاگونومیکس اقتصاد دانشگاه شیکاگو](http://www.nashremahris.ir/product/detail/250411/شیکاگونومیکس-ش-روزنه) در مورد این که راکفلر چطوری دانشگاه شیکاگو رو ساخته.
 
+علی بندری: [مقاله با دروغ زندگی نکن](https://bpluspodcast.com/blog/با-دروغ-زندگی-نکن/) از الکساندر سولژنیتسین
 
-3- محمدرضا فرهادی‌پور: (https://www.ketabchin.com/%D8%B9%D9%84%DB%8C-%D9%86%DB%8C%D9%86%D9%88/book/61091860)کتاب] علی و نینو نوشته قربان سعید - (https://www.google.ca/books/edition/The_Orientalist/Uy8sCqgolNMC?hl=en&gbpv=0)کتاب ]The Orientalist نوشته تام ریس درباره این که قربان سعید کیست.
+۶- معین فرخی: [فیلم Inside](https://en.wikipedia.org/wiki/Bo_Burnham:_Inside) از کمدینی به اسم [Bo Burnham](‌(https://en.wikipedia.org/wiki/Bo_Burnham) که در دوران قرنطینه ساخته شده و در مورد کمدینی هست که دوست داره چشم در چشم مردم باشه اما دوران قرنطینه هست و نمی‌تونه. فیلمی در مورد انزوا، میل به دیده شدن و دیده نشدن هست.
 
+[مجموعه مقاله‌ی این هم مثالی دیگر]((https://fidibo.com/book/92388-%DA%A9%D8%AA%D8%A7%D8%A8-%D8%A7%DB%8C%D9%86-%D9%85%D8%AB%D8%A7%D9%84%DB%8C-%D8%AF%DB%8C%DA%AF%D8%B1) در مورد [دیوید فاستر والاس](https://en.wikipedia.org/wiki/David_Foster_Wallace) که نشر اطراف چاپ کرده.
 
+۷-عباس سیدین: [ورنر هرتسوگ](https://www.wernerherzog.com) - فیلمساز آلمانی که خیلی پرکار هست. هم فیلم داستانی بلند می‌سازه هم مستند. در کل نگاه جالبی داره. [فیلم Little Dieter Needs to Fly](https://en.wikipedia.org/wiki/Little_Dieter_Needs_to_Fly)
 
-(https://www.iranketab.ir/profile/9092-%D9%85%D8%AD%D9%85%D8%AF%D8%B9%D9%84%DB%8C-%D9%85%DB%8C%D8%B1%D8%A8%D8%A7%D9%82%D8%B1%DB%8C)کتاب] درون آینه و آنچه آلیس در آن دید نوشته لوییس کارول
 
+۸- پیمان بشردوست: [کارا بروکینز](https://carabrookins.com) - داستان الهام‌بخشی داره - [تد تاک](https://www.ted.com/talks/cara_brookins_how_to_build_a_life_without_limits?language=en)
 
 
-(https://www.iranketab.ir/book/3297-ignorance)کتاب ]بی خبری (یا جهالت) نوشته میلان کوندرا - صحبتی داره کوندرا در مورد (https://en.wikipedia.org/wiki/J%C3%B3nas_Hallgr%C3%ADmsson)یوناس هالگریمسون].
+بیل گیتس و زندگی الهام‌بخشش - فعالیت‌هاش در [بنیاد گیتس](https://www.gatesfoundation.org) - در[وبسایتGates Notes](https://www.gatesnotes.com)  نظراتش رو عنوان می‌کنه. توی یکی از [مقاله‌هاش 5 تا کتابی که اخیرا خونده](https://www.gatesnotes.com/About-Bill-Gates/Summer-Books-2021) رو معرفی کرده.
 
+[پادکست](https://pod.link/1538630420) هم داره و آدم‌های تاثیرگذار رو میاره باهاشون صحبت می‌کنه.
 
+۹- مهلا علیزاده: چالشی که بالاجی توی [خبرنامه‌اش](https://balajis.com/tag/1729-com/) راه انداخته راجع به این که چه چالشی در زمینه موضوعی که توی [کتاب ذهن حواس‌جمع](https://fidibo.com/book/103735-ذهن-حواس-جمع) مطرح شده داشتی؟ گفته به هر کس که توی این چالش شرکت کنه 100 دلار بیت کوین می‌ده!
 
-(https://t.me/exitvoiceloyalty/1535)مجله اقتصادی بنگاه]  - (https://www.instagram.com/econaghal/)پادکست] اکونقال
+کلاب فیلم‌باز که در مورد فیلم‌ها صحبت می‌کنن و خیلی مطلع هستن. مثلاً فیلم و سریال مرتبط با یک موضوع رو معرفی می‌کنن. روم هفتگی دارن: شنبه‌ها ساعت 9:30 به وقت ایران
 
+[پادکست Verbrechen]((https://podcasts.apple.com/us/podcast/verbrechen/id1374777077) به زبان آلمانی در مورد جرم هست. در مورد کیس‌هایی که جالب هست صحبت می‌کنن.
 
+۱۰- علی حجوانی: [مقاله درباره شهر](https://reasonstobecheerful.world/affordable-housing-boarding-houses-city-rent/) [Bellingham](https://en.wikipedia.org/wiki/Bellingham,_Washington) و ایده‌ی زندگی کردن در خانه‌های اشتراکی
 
-4- رویا کریمیان: (https://www.google.ca/books/edition/East_of_Eden/_nfCDwAAQBAJ?hl=en&gbpv=1&dq=east+of+eden&printsec=frontcover)کتاب] شرق بهشت از جان اشتاین بک - (https://www.google.ca/books/edition/Journal_of_a_Novel/Kqa-LNTu_TkC?hl=en&gbpv=1&dq=journal+of+a+novel&printsec=frontcover)کتاب] (Journal of a Novel) روزمره نویسی جان اشتاین بک در زمان نوشتن کتاب شرق بهشت
+[مقاله در مورد تئوری توطئه](https://revealnews.org/article/where-did-the-microchip-vaccine-conspiracy-theory-come-from-anyway/) در مورد وجود میکروچیپ در واکسن‌های کووید که به بیل گیتس هم نسبت داده شده بود. 
 
+۱۱- حسین کاجی: [اروین یالوم](https://en.wikipedia.org/wiki/Irvin_D._Yalom) روانشناس و روانکاو - [کتاب مساله مرگ و زندگی](https://www.google.ca/books/edition/A_Matter_of_Death_and_Life/Xo4GzgEACAAJ?hl=en)، [کتاب وقتی نیچه گریست]-(https://fidibo.com/book/62882-کتاب-وقتی-نیچه-گریست)،
+[کتاب درمان شوپنهاور](https://fidibo.com/book/66061-کتاب-درمان-شوپنهاور) و ویدیویی در مورد زندگی مشترک یالوم و همسرش
 
+[Rollo May](https://en.wikipedia.org/wiki/Rollo_May) روانشناس اگزیستانسیالیست
 
-(https://www.google.ca/books/edition/The_Gifts_of_Imperfection/5DT91ar7MwkC?hl=en&gbpv=1&dq=gifts+of+imperfection&printsec=frontcover)کتاب] Gifts of Imperfection  
+[کانال تلگرام](https://t.me/eudemonia) خوب زیستن از دکتر بابک عباسی در مورد فلسفه رواقی
 
+۱۲- امیر ایمان‌زاده: [پادکست How to Do Everything](https://podcasts.apple.com/ca/podcast/how-to-do-everything/id420543296) متعلق به NPR که در مورد موضوعات مختلف هست.
 
+[کتاب Never Split the Difference](https://www.google.ca/books/edition/Never_Split_the_Difference/RmdqCgAAQBAJ?hl=en&gbpv=0) در مورد فنون مذاکره. در مورد این که چطور می‌تونید مذاکره رو طوری که می‌خواهید پیش ببرید.
 
-(https://tim.blog/2014/10/21/brain-pickings/)مصاحبه] ماریا پوپوا با تیم فریس - روش نت برداری ماریا پوپوا به نام ()
+۱۳- ندا: [مجله‌ی The Week Junior](https://theweekjunior.com) برای کودکان. مجله هفتگی هست که برای کودکان 8 تا 14 سال هست. مثل دانستنی‌ها و کیهان بچه‌های قدیم. اطلاعات روز برای بچه‌ها داره. [اکانت اینستاگرام](https://www.instagram.com/theweekjuniorus/)
 
+۱۴- حامد فتاحیان: [متئو لیبرمن](https://en.wikipedia.org/wiki/Matthew_Lieberman) نوروساینتیست و روان‌شناس اجتماعی فعال در رابطه سوشیال نوروساینس. - [کتاب مغز اجتماعی](https://binesh-no.com/product/مغز-اجتماعی/) - ایشون پروژه‌ی جدیدی](https://science.sciencemag.org/content/302/5643/290?casa_token=EEHtqoLpelcAAAAA%3Acm5WBVydygw7fsrsYz2pC3oPoCzbXVR8lwoiHCwVp8QwfB86kan-p106vDkHpN5hGQdSkWdyW6ss9g) رو شروع کرده در مورد این که بتونن با تصویربرداری مغزی سازگاری آدم‌ها رو بررسی کنن.
 
+۱۵- فریدون نجفی‌تبار: [وبسایت ما به درختان نیازمندیم](https://weneedtrees.com) از [محمد تاجران](https://fa.wikipedia.org/wiki/محمد_تاجران) جهانگرد. کارگاه می‌ذاره و با بچه‌ها در مورد حساسیت‌های زیست محیطی صحبت می‌کنه.
 
-5- مریم ماه:(https://www.google.ca/books/edition/The_Bomber_Mafia/_gQXEAAAQBAJ?hl=en&gbpv=1&dq=the+bomber+mafia&printsec=frontcover) کتاب] (The Bomber Mafia) از مالکوم گلدول که شنیدن (https://www.audible.ca/pd/The-Bomber-Mafia-Audiobook/1735803227)کتاب صوتیش] بیشتر از خوندنش پیشنهاد میشه چون تجربه جالبی هست شنیدنش.
+[سروش صلواتیان](https://www.instagram.com/s.slvt/?hl=en) که توی جازموریان فعالیت می‌کنه. [صفحه‌ای](https://zil.ink/soroushsalavatian) درست کردن که با کمک جامعه محلی حصیرهایی که اونجا تولید می‌شه رو داره می‌فروشه.
 
+۱۶- سولماز برقگیر: [پادکست هوبرمن لب](https://hubermanlab.com)  - از [اندرو هوبرمن](https://en.wikipedia.org/wiki/Andrew_D._Huberman) - چشم پزشک و نوروبیولوژیست. آنچه در مورد اعضای بدن می‌دونیم صحبت کرده. راجع به آناتومی بدن به صورت کاملاً سطحی و قابل فهم صحبت می‌کنه. اپیزود جدیدش در مورد این هست که چشم‌مون چطور کار می‌کنه و چطور روی ما و آدم‌های اطراف‌مون تاثیر می‌ذاره.
 
+۱۷- محمد: [مستند The Social Dilemma](https://en.wikipedia.org/wiki/The_Social_Dilemma) در مورد تاثیرات شبکه‌های اجتماعی روی زندگی‌مون هست. (در [قسمت اول پادکست داکس](https://pod.link/1534375362/episode/55267c95bd8c1e61e9798816412aa943) در موردش صحبت شده.)
 
-علی حجوانی: کمپانی تولید محتوای (https://www.pushkin.fm/news/pushkin-executive-producer-mia-lobel-featured-in-pro-sound-news/)پوشکین] - میا لوبل
+[مستند Seaspiracy](https://www.seaspiracy.org) از علی تبریزی در مورد زندگی دریا و اهمیت اقیانوس‌ها و بلایی که انسان‌ها دارن سر اقیانوس‌ها میارن.
 
+ویدیویی از [مصاحبه با راس اولبریکت]((https://channelbpodcast.com/archives/3209) سریال سیلک رود چنل بی
 
+# تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
 
-(https://www.netflix.com/ca/title/81328723)مستند] (Coded Bias) خانمی که در MIT علوم کامپیوتر خونده در مورد ایرادات الگوریتمی ای که دوربین های تشخیص خطا داشتند صحبت کرده. از این دوربین ها در انگلیس و چین استفاده شده. کلید واژه ای برای مطالعه: Credit Score
+## جلسه شماره ۱۶
 
+**این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.**
 
-
-(https://www.politico.com/news/2021/06/21/biden-solar-ban-china-forced-labor-495330)خبری ]در مورد منع خرید محصولات سولار سیستم از چین که بایدن اخیرا امضا کرده. 
-
-
-
-6- پیمان بشردوست:(https://deepmind.com/) شرکت] دیپ مایند که در زمینه هوش مصنوعی و یادگیری ماشین فعالیت میکنه.
-
-
-
-(https://deepmind.com/research/case-studies/alphago-the-story-so-far)پروژه] آلفا گو در مورد پروژه ای که از طریق یادگیری ماشین بازی گو رو به کامپیوتر یاد  دادن و تونستن قهرمان گو جهان رو ببرن.
-
-
-
-(https://deepmind.com/research/case-studies/alphafold)پروژه] آلفا فولد در مورد تاشدگی پروتئین ها که با استفاده از اون می خوان تعدادی از بیماری ها رو درمان کنن.
-
-
-
-(https://www.instagram.com/mollanasraddinx/?utm_medium=copy_link)صفحه اینستاگرام ]ملانصرالدین که تصاویر قدیم ایران از 100-120 سال پیش رو از جاهای مختلف جمع آوری کردن و منتشر می کنن.
-
-
-
-کانال (https://www.youtube.com/c/DeepPodcast)یوتیوب] (Deep Podcast) که در مورد دوران قاجار به خصوص آقامحمدخان قاجار ویدیو می سازن.
-
-
-
-7- محمد: کانال (https://www.youtube.com/c/ziyasadr)یوتوب] ضیا صدر در مورد رمزامرزها - روم کلاب هاوس سهیل مرادی 
-
-
-
-8- بابک معدن دار: (https://www.google.ca/books/edition/The_Principle_of_Hope/kJW_nQEACAAJ?hl=en)کتاب] (The Principle of Hope) مبانی امید نوشته (https://en.wikipedia.org/wiki/Ernst_Bloch)ارنست بلاخ ]فیلسوف و روانشناس با نگاه یوتوپیایی
-
-
-
-(https://shahreketabonline.com/Products/Details/255215/%D8%AF%D8%B1%D9%88%D8%BA_%D9%87%D8%A7%DB%8C%DB%8C_%DA%A9%D9%87_%D8%A8%D9%87_%D8%AE%D9%88%D8%AF_%D9%85%DB%8C_%DA%AF%D9%88%DB%8C%DB%8C%D9%85)کتاب] دروغ هایی که به خود می گوییم نوشته جان فردریکسون
-
-
-
-(https://shahreketabonline.com/Products/Details/7212/%D8%A2%D9%86%D8%A7%D8%AA%D9%88%D9%85%DB%8C_%D9%88%DB%8C%D8%B1%D8%A7%D9%86%D8%B3%D8%A7%D8%B2%DB%8C_%D8%A7%D9%86%D8%B3%D8%A7%D9%86_%D9%BE%D8%B1%D8%AE%D8%A7%D8%B4%D8%AC%D9%88%DB%8C%DB%8C_%D9%88_%D9%88%DB%8C%D8%B1%D8%A7%D9%86%D8%B3%D8%A7%D8%B2%DB%8C)کتاب] آناتومی ویرانسازی انسان نوشته اریک فروم
-
-
-
-9- بهروز جعفرنژاد: تئوری «پردازش پیش بینی» - (https://en.wikipedia.org/wiki/Predictive_coding)Predictive coding ]مدلی که به مغز به عنوان یک ماشین پیش بینی کننده نگاه میکنه. - مجله آنلاین Ian 
-
-
-
-علی بندری: در مورد کارکرد مغز در بودجه‌بندی بدن و پیش از هر چیز، پیشبینی هر لحظه در (https://bpluspodcast.com/podcast/second-season/%D8%A7%D8%AD%D8%B3%D8%A7%D8%B3%D8%A7%D8%AA-%D8%A7%D8%B2-%DA%A9%D8%AC%D8%A7-%D9%85%DB%8C%D8%A2%DB%8C%D9%86%D8%AF/)کتاب] احساسات چگونه ایجاد می شوند از(https://lisafeldmanbarrett.com/) لیزا فلدمن برت]
-
-
-
-(https://perspectiveix.substack.com/p/social-media-mental-health?r=5ahn8&utm_campaign=post&utm_medium=web&utm_source=copy)در مورد نکات مثبت سوشیال مدیا] - - (https://perspectiveix.substack.com/p/social-media-mental-health)شماره‌ی آخر خبرنامه بهروز] جعفرنژاد
-
-
-
-(https://news.hiddenbrain.org/)خبرنامه ]Hidden Brain
-
-
-
-10- مریم ظفرطلب: (https://bpluspodcast.com/podcast/fourth-season/%D8%AF%D9%84%D8%A7%DB%8C%D9%84-%D8%AE%D9%88%D8%A8-%D8%A8%D8%B1%D8%A7%DB%8C-%D8%A7%D8%AD%D8%B3%D8%A7%D8%B3-%D9%87%D8%A7%DB%8C-%D8%A8%D8%AF/)اپیزود] 57 بی پلاس: دلایل خوب برای احساسات بد
-
-
-
-11- مدی گلونت: (https://en.wikipedia.org/wiki/Brian_Wecht)برایان وکت] - استاد تمام فیزیک نظری در دانشگاهی در لندن - کلیپ های جالبی در(https://www.youtube.com/user/ninjasexparty) یوتیوب ]به نام (Ninja Sex Party) می سازه
-
-
-
-12- شایان: (https://www.google.ca/books/edition/Speculation_Trading_and_Bubbles/jHbeAwAAQBAJ?hl=en&gbpv=1&dq=speculation+trading+and+bubbles&printsec=frontcover)کتاب] (Speculation, Trading and Bubbles) نوشته ژوزه شینک - اقتصاددان استاد دانشگاه کلمبیا -  در مورد مسئله حباب در اقتصاد
-
-
-
-13- نیلا والا: (https://open.spotify.com/show/2Shpxw7dPoxRJCdfFXTWLE)پادکست] (Philosophize This) از استیون وست - تعریف فلسفه به صورت ساده و با کمدی
-
-
-
-(https://www.google.ca/books/edition/Ralph_Tells_a_Story/5vZ8tgAACAAJ?hl=en)کتاب] (Ralph Tells a Story) برای کودکان زیر 5 سال (https://hodhod.com/product/%D8%B1%D8%A7%D9%84%D9%81-%D9%82%D8%B5%D9%87-%D9%85%DB%8C-%D9%86%D9%88%DB%8C%D8%B3%D8%AF)رالف قصه می نویسد] ترجمه احمد تصویری از انتشارات پرتقال
-
-
-
-(https://www.google.ca/books/edition/The_Whole_Brain_Child/tPnEthnZ4nQC?hl=en&gbpv=1&dq=whole+brain+child&printsec=frontcover)کتاب] (The Whole-brain Child)
-
-
-
-
-
-
-
-
-تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
-
-
-
-
-جلسه شماره ۱۷
-
-
-
-
-این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.
-
-
-
-
-پنجشنبه ۲۷ خرداد ۱۴۰۰ ////// ۱۷ ژوئن ۲۰۲۱ - ۱۱ شب به وقت تهران
-
-
-
-
-۱- علی بندری:(https://www.google.ca/books/edition/Iran/omo3DwAAQBAJ?hl=en&gbpv=0) کتاب] تاریخ مدرن ایران نوشته (https://en.wikipedia.org/wiki/Abbas_Amanat)عباس امانت] که از 1500 میلادیی یعنی شروع دوره صفوی به بعد رو در موردش صحبت می کنه.
-
-
-
-
-۲- مقاله ای درباره پدر به نام ((https://knowablemagazine.org/article/living-world/2021/evolution-dad)Evolution of the dad]) در مورد این که چرا نقش پدر در انسان ها با نقش پدر در بقیه موجودات فرق داره؟
-
-
-
-علی بندری: در کتاب «دلایل خوب برای احساس های بد» هم اشاره ای به این موضوع می کند. (خلاصه: (https://bpluspodcast.com/podcast/fourth-season/%D8%AF%D9%84%D8%A7%DB%8C%D9%84-%D8%AE%D9%88%D8%A8-%D8%A8%D8%B1%D8%A7%DB%8C-%D8%A7%D8%AD%D8%B3%D8%A7%D8%B3-%D9%87%D8%A7%DB%8C-%D8%A8%D8%AF/)اپیزود 57 بی پلاس])
-
-
-
-۳- مروارید زندی‌چی: مونیکا لوینسکی - در مورد پابلیک شیمینگ (شرمساری عمومی) -(https://www.ted.com/talks/monica_lewinsky_the_price_of_shame?language=en) تد تاک] در مورد شرم. (https://www.youtube.com/watch?v=Yq7Eh6JTKIg)مصاحبه] با جان الیور. 
-
-
-
-۴-مریم ماه:(https://www.1pezeshk.com) وبسایت] یک پزشک که در مورد مسائل مختلفی مثل تکنولوژی های مختلف و معرفی فیلم و این جور چیزها توش مطلب گذاشته میشه. خبرنامه هم داره که با عضویت در اون می تونید مطالب جالبی رو هر روز توی ایمیلتون دریافت کنید.
-
-
-
-کتاب ((https://www.google.ca/books/edition/Amazon_Unbound/oJwtEAAAQBAJ?hl=en&gbpv=0)Amazon Unbound]) از برد استون درمورد جف بزوس و آمازون
-
-
-
-(https://bpluspodcast.com/podcast/fourth-season/چین/)اپیزود 59 پادکست بی پلاس] در مورد چین که مطالب خیلی خوبی در مورد چین
-
-
-
-۵- محمدرضا فرهادی: (https://nashrenow.com/ادبیات-داستانی-معاصر-جهان/389-یک-روز-از-زندگی-ایوان-دنیسوویچ.html)کتاب] یک روز از زندگی ایوان دنیسوویچ از الکساندر سولژنیتسین - گفته میشه با انتشار این کتاب دیکتاتوری استالین ترک برداشت. - (https://nashremahi.com/author_book/آلکساندر-سولژنیتسین/)کتاب] خانه ماتریونا هم که اون هم در مورد دیکتاتوری هست.
-
-
-
-(http://www.goman-pub.com/HSP_Shop/product.php?proId=151977)کتاب] آداب دیکتاتوری از فرانک دیکوتر که اون هم یک فصل در مورد شوروی و دیکتاتوری استالین داره.
-
-
-
-آقای باستانی پاریزی خاطرات دست اول بی نظیری رو داره که کتاب های زیادی هم داره که همه پیشنهاد میشه. مقاله ای دارن در مورد اهمیت جاده ابریشم برای ایران.
-
-
-
-(https://en.wikipedia.org/wiki/The_Men_Who_Built_America)مستند] مردانی که آمریکا را ساختند - این مستند در مورد 10 نفر هست که در آمریکا تاثیر زیادی داشتند.
-
-
-
-(http://www.nashremahris.ir/product/detail/250411/شیکاگونومیکس-ش-روزنه)کتاب] شیکاگونومیکس اقتصاد دانشگاه شیکاگو در مورد این که راکفلر چطوری دانشگاه شیکاگو رو ساخته.
-
-
-
-علی بندری: مقاله با (https://bpluspodcast.com/blog/با-دروغ-زندگی-نکن/)دروغ زندگی نکن] از الکساندر سولژنیتسین
-
-
-
-۶- معین فرخی: (https://en.wikipedia.org/wiki/Bo_Burnham:_Inside)فیلم ]Inside از کمدینی به اسم (‌(https://en.wikipedia.org/wiki/Bo_Burnham)Bo Burnham]) که در دوران قرنطینه ساخته شده و در مورد کمدینی هست که دوست داره چشم در چشم مردم باشه اما دوران قرنطینه هست و نمی تونه. فیلمی در مورد انزوا، میل به دیده شدن و دیده نشدن هست.
-
-
-
-مجموعه مقاله ی ((https://fidibo.com/book/92388-%DA%A9%D8%AA%D8%A7%D8%A8-%D8%A7%DB%8C%D9%86-%D9%85%D8%AB%D8%A7%D9%84%DB%8C-%D8%AF%DB%8C%DA%AF%D8%B1)این هم مثالی دیگر]) در مورد(https://en.wikipedia.org/wiki/David_Foster_Wallace) دیوید فاستر والاس] که نشر اطراف چاپ کرده.
-
-
-
-۷-عباس سیدین: (https://www.wernerherzog.com)ورنر هرتسوگ] - فیلمساز آلمانی که خیلی پر کار هست. هم فیلم داستانی بلند می سازه هم مستند. در کل نگاه جالبی داره. (https://en.wikipedia.org/wiki/Little_Dieter_Needs_to_Fly)فیلم ]Little Dieter Needs to Fly 
-
-
-
-۸- پیمان بشردوست:(https://carabrookins.com) کارا بروکینز] - داستان الهام بخشی داره - (https://www.ted.com/talks/cara_brookins_how_to_build_a_life_without_limits?language=en)تد تاک]
-
-
-
-بیل گیتس و زندگی الهام بخشش - فعالیت هاش در (https://www.gatesfoundation.org)بنیاد] گیتس - در(https://www.gatesnotes.com) وبسایت] (Gates Notes) نظراتش رو عنوان میکنه. توی یکی از(https://www.gatesnotes.com/About-Bill-Gates/Summer-Books-2021) مقاله] هاش 5 تا کتابی که اخیرا خونده رو معرفی کرده.
-
-
-
-(https://pod.link/1538630420)پادکست ]هم داره و آدم های تاثیر گذار رو میاره باهاشون صحبت میکنه.
-
-
-
-۹- مهلا علیزاده: چالشی که بالاجی توی(https://balajis.com/tag/1729-com/) خبرنامه] ش راه انداخته راجع به این که چه چالشی در زمینه موضوعی که توی (https://fidibo.com/book/103735-ذهن-حواس-جمع)کتاب] ذهن حواس جمع مطرح شده داشتی؟ گفته به هر کس که توی این چالش شرکت کنه 100 دلار بیت کوین میده!
-
-
-
-کلاب فیلم باز که در مورد فیلم ها صحبت میکنن و خیلی مطلع هستن. مثلا فیلم و سریال مرتبط با یک موضوع رو معرفی میکنن. روم هفتگی دارن: شنبه ها ساعت 9:30 به وقت ایران
-
-
-
-پادکست ((https://podcasts.apple.com/us/podcast/verbrechen/id1374777077)Verbrechen]) به زبان آلمانی در مورد جرم هست. در مورد کیس هایی که جالب هست صحبت می کنن.
-
-
-
-۱۰- علی حجوانی: (https://reasonstobecheerful.world/affordable-housing-boarding-houses-city-rent/)مقاله] در مورد شهر (https://en.wikipedia.org/wiki/Bellingham,_Washington)Bellingham ]و ایده‌ی زندگی کردن در خانه‌های اشتراکی 
-
-
-
-(https://revealnews.org/article/where-did-the-microchip-vaccine-conspiracy-theory-come-from-anyway/)مقاله] در مورد تئوری توطئه در مورد وجود میکروچیپ در واکسن‌های کووید که به بیل گیتس هم نسبت داده شده بود. 
-
-
-
-۱۱- حسین کاجی: (https://en.wikipedia.org/wiki/Irvin_D._Yalom)اروین یالوم] روانشناس و روانکاو - (https://www.google.ca/books/edition/A_Matter_of_Death_and_Life/Xo4GzgEACAAJ?hl=en)کتاب] مساله مرگ و زندگی -(https://fidibo.com/book/62882-کتاب-وقتی-نیچه-گریست) کتاب] وقتی نیچه گریست - (https://fidibo.com/book/66061-کتاب-درمان-شوپنهاور)کتاب] درمان شوپنهاور - ویدیویی در مورد زندگی مشترک یالوم و همسرش - 
-
-
-
-(https://en.wikipedia.org/wiki/Rollo_May)Rollo May] روانشناس اگزیستانسیالیست
-
-
-
-(https://t.me/eudemonia)کانال تلگرام] خوب زیستن از دکتر بابک عباسی در مورد فلسفه رواقی
-
-
-
-۱۲- امیر ایمان زاده: (https://podcasts.apple.com/ca/podcast/how-to-do-everything/id420543296)پادکست] (How to Do Everything) متعلق به NPR که در مورد موضوعات مختلف هست.
-
-
-
-(https://www.google.ca/books/edition/Never_Split_the_Difference/RmdqCgAAQBAJ?hl=en&gbpv=0)کتاب] (Never Split the Difference) در مورد فنون مذاکره- در مورد این که چطور می تونید مذاکره رو طوری که میخواهید پیش ببرید.
-
-
-
-۱۳- ندا: (https://theweekjunior.com)مجله‌]ی (The Week Junior) برای کودکان - مجله هفتگی هست که برای کودکان 8 تا 14 سال هست. مثل دانستنی ها و کیهان بچه های قدیم. اطلاعات روز برای بچه ها داره. (https://www.instagram.com/theweekjuniorus/)اکانت اینستاگرام]
-
-
-
-۱۴- حامد فتاحیان: (https://en.wikipedia.org/wiki/Matthew_Lieberman)متئو لیبرمن] نوروساینتیست و روان شناس اجتماعی - فعال در رابطه سوشیال نوروساینس. - (https://binesh-no.com/product/مغز-اجتماعی/)کتاب] مغز اجتماعی - ایشون (https://science.sciencemag.org/content/302/5643/290?casa_token=EEHtqoLpelcAAAAA%3Acm5WBVydygw7fsrsYz2pC3oPoCzbXVR8lwoiHCwVp8QwfB86kan-p106vDkHpN5hGQdSkWdyW6ss9g)پروژه ی جدیدی] رو شروع کرده در مورد این که بتونن با تصویربرداری مغزی سازگاری آدم ها رو بررسی کنن.
-
-
-
-۱۵- فریدون نجفی‌تبار: (https://weneedtrees.com)وبسایت] ما به درختان نیازمندیم از (https://fa.wikipedia.org/wiki/محمد_تاجران)محمد تاجران]  جهانگرد - کارگاه میذاره و با بچه ها در مورد حساسیت های زیست محیطی صحبت می کنه.
-
-
-
-(https://www.instagram.com/s.slvt/?hl=en)سروش صلواتیان] که توی جازموریان فعالیت میکنه. (https://zil.ink/soroushsalavatian)صفحه] ای درست کردن که با کمک جامعه محلی حصیرهایی که اونجا تولید میشه رو داره میفروشه. 
-
-
-
-۱۶- سولماز برقگیر:(https://hubermanlab.com) پادکست] هوبرمن لب - از (https://en.wikipedia.org/wiki/Andrew_D._Huberman)اندرو هوبرمن] - چشم پزشک و نوروبیولوژیست - آنچه در مورد اعضای بدن می دونیم صحبت کرده. راجع به آناتومی بدن به صورت کاملا سطحی و قابل فهم صحبت میکنه. اپیزود جدیدش در مورد این هست که چشممون چطور کار میکنه و چطور روی ما و آدم های اطرافمون تاثیر میذاره.
-
-
-
-۱۷- محمد: (https://en.wikipedia.org/wiki/The_Social_Dilemma)مستند ](The Social Dilemma) در مورد تاثیرات شبکه های اجتماعی روی زندگی مون هست. (در (https://pod.link/1534375362/episode/55267c95bd8c1e61e9798816412aa943)قسمت اول پادکست داکس] در موردش صحبت شده.)
-
-
-
-(https://www.seaspiracy.org)مستند] (Seaspiracy) از علی تبریزی در مورد زندگی دریا و اهمیت اقیانوس ها و بلایی که انسان ها دارن سر اقیانوس ها میارن.
-
-
-
-ویدیویی از مصاحبه با راس اولبریکت ((https://channelbpodcast.com/archives/3209)سریال سیلک رود چنل بی])
-
-
-
-تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
-
-
-
-
-جلسه شماره ۱۶
-
-
-
-
-این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.
-
-
-
-
-پنجشنبه ۲۰ خرداد ۱۴۰۰ ////// ۱۰ ژوئن ۲۰۲۱ - ۱۱ شب به وقت تهران
-
-
-
+**پنجشنبه ۲۰ خرداد ۱۴۰۰ ////// ۱۰ ژوئن ۲۰۲۱ - ۱۱ شب به وقت تهران**
 
 ۱- علی بندری: (https://www.wsws.org/en/articles/2021/06/01/wuha-j02.html)مقاله‌ای] در وبسایت (https://www.wsws.org/en)World Socialist Web Site] که می‌گه کسی که با گزارش اخیرش در وال استریت ژورنال به نظریه‌ی Lab Leak اعتبار داده همون نوسنده‌ایه که بیست سال پیش درباره‌ی اقدام های صدام برای به دست آوردن سلاح‌های کشتار جمعی نوشته بود. در ادامه‌ی (https://www.theinsight.org/p/how-the-twittermedia-feedback-loop)مطلب] دو هفته‌ی پی
 
@@ -2752,4 +2545,5 @@ Peter Thiel - آدم جنجالی است که وارد دنیای فلسفه و 
 
 
 https://cutt.ly/gzT8PSf
+
 
