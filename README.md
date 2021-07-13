@@ -1,6 +1,8 @@
-# تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
+اینجا فهرستی از محتوای ارائه شده در اتاق «تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟» در کلاب‌هاوس هست که در جلسات هفتگی توسط اعضای کلاب مطرح شده است. جلسات این کلاب هر پنجشنبه برگزار و توسط «علی حجوانی» و «علی بندری» مدیریت می‌شه.
 
-## جلسه شماره ۲۰
+#تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
+
+##جلسه شماره ۲۰
 **این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.**
 
 **پنجشنبه ۱۷ تیر ۱۴۰۰ ////// ۸ ژوئیه ۲۰۲۱ - ۱۱ شب به وقت تهران**
@@ -65,9 +67,9 @@
 [اپلیکیشن Waking Up](https://wakingup.com/) از سم هریس و [پادکست Making Sense](https://samharris.org/podcast/)
 
 
-# برای کودکان و نوجوانان؛ تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
+#برای کودکان و نوجوانان؛ تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
 
-## جلسه شماره ۱۹
+##جلسه شماره ۱۹
 
 ** این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که در حوزه کودکان و نوجوانان، تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.**
 
@@ -180,10 +182,10 @@
 19- ستاره: [کارتون Inside Out](https://www.imdb.com/title/tt2096673/)
 
 
-# تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
+#تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
 
 
-## جلسه شماره ۱۸
+##جلسه شماره ۱۸
 
 **این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.**
 
@@ -262,9 +264,9 @@
 
 [کتاب The Whole-brain Child](https://www.google.ca/books/edition/The_Whole_Brain_Child/tPnEthnZ4nQC?hl=en&gbpv=1&dq=whole+brain+child&printsec=frontcover)
 
-## تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
+##تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
 
-# جلسه شماره ۱۷
+#جلسه شماره ۱۷
 
 **این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.**
 
@@ -323,7 +325,7 @@
 ۱۱- حسین کاجی: [اروین یالوم](https://en.wikipedia.org/wiki/Irvin_D._Yalom) روانشناس و روانکاو - [کتاب مساله مرگ و زندگی](https://www.google.ca/books/edition/A_Matter_of_Death_and_Life/Xo4GzgEACAAJ?hl=en)، [کتاب وقتی نیچه گریست]-(https://fidibo.com/book/62882-کتاب-وقتی-نیچه-گریست)،
 [کتاب درمان شوپنهاور](https://fidibo.com/book/66061-کتاب-درمان-شوپنهاور) و ویدیویی در مورد زندگی مشترک یالوم و همسرش
 
-[Rollo May](https://en.wikipedia.org/wiki/Rollo_May) روانشناس اگزیستانسیالیست
+روانشناس اگزیستانسیالیست [Rollo May](https://en.wikipedia.org/wiki/Rollo_May)
 
 [کانال تلگرام](https://t.me/eudemonia) خوب زیستن از دکتر بابک عباسی در مورد فلسفه رواقی
 
@@ -347,753 +349,367 @@
 
 ویدیویی از [مصاحبه با راس اولبریکت]((https://channelbpodcast.com/archives/3209) سریال سیلک رود چنل بی
 
-# تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
+#تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
 
-## جلسه شماره ۱۶
+##جلسه شماره ۱۶
 
 **این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.**
 
 **پنجشنبه ۲۰ خرداد ۱۴۰۰ ////// ۱۰ ژوئن ۲۰۲۱ - ۱۱ شب به وقت تهران**
 
-۱- علی بندری: (https://www.wsws.org/en/articles/2021/06/01/wuha-j02.html)مقاله‌ای] در وبسایت (https://www.wsws.org/en)World Socialist Web Site] که می‌گه کسی که با گزارش اخیرش در وال استریت ژورنال به نظریه‌ی Lab Leak اعتبار داده همون نوسنده‌ایه که بیست سال پیش درباره‌ی اقدام های صدام برای به دست آوردن سلاح‌های کشتار جمعی نوشته بود. در ادامه‌ی (https://www.theinsight.org/p/how-the-twittermedia-feedback-loop)مطلب] دو هفته‌ی پی
+۱- علی بندری: [مقاله‌ای](https://www.wsws.org/en/articles/2021/06/01/wuha-j02.html) در [وبسایتWorld Socialist Web Site](https://www.wsws.org/en) که می‌گه کسی که با گزارش اخیرش در وال استریت ژورنال به نظریه‌ی Lab Leak اعتبار داده همون نویسنده‌ایه که بیست سال پیش درباره‌ی اقدام‌های صدام برای به دست آوردن سلاح‌های کشتار جمعی نوشته بود. در ادامه‌ی [مطلب](https://www.theinsight.org/p/how-the-twittermedia-feedback-loop) دو هفته‌ی پیش
 
+2. آتوسا: [کتاب بهت و لرزه](https://shahreketabonline.com/Products/Details/264912/%D8%A8%D9%87%D8%AA_%D9%88_%D9%84%D8%B1%D8%B2%D9%87) نوشته [امیلی نوتومب](https://en.wikipedia.org/wiki/Am%C3%A9lie_Nothomb) - مفهومی به نام Ijime در فرهنگ  ژاپن به معنای رفتارهای آزارگرانه سیستماتیک. [مقاله در مورد رابطه میان شرایط فرد و تفاوتش با جامعه](https://scholarworks.bgsu.edu/irj/vol4/iss1/6/) و مورد ایجیمه واقع شدن.
 
+3. برایان بختیاری: [داریوش مودبیان](https://t.me/MoadabianDariush) - [کتاب Zero to one](https://www.amazon.ca/Zero-One-Notes-Startups-Future/dp/0804139296) - درباره این است که به جای کارهای خیلی بزرگ و اهداف بسیار طولانی، درباره حل یک مشکل کوچک فکر کنیم. این نگاه به مرور می‌تواند باعث اتفاقات بزرگی شود.
 
+۴ - فرن هل‌فروش: مستند [The Inventor](https://www.hbo.com/documentaries/the-inventor-out-for-blood-in-silicon-valley) درمورد [خانم الیزابت هولمز](https://en.wikipedia.org/wiki/Elizabeth_Holmes). در مورد دستگاه‌های آزمایش خون که قرار بوده ساخته بشه که بعد از 10 سال به شکست انجامید. کتاب [Bad Blood](https://www.google.ca/books/edition/Bad_Blood/dX3HDwAAQBAJ?hl=en&gbpv=0) کاملا در مورد این موضوع صحبت کرده. [پادکست استرینگ کست](https://pod.link/1071231748) در یه سریال سه قسمتی این داستان رو تعریف کرده ([قسمت اول](https://stringcast.ir/podcast/badblood1/)، [قسمت دوم](https://stringcast.ir/podcast/badblood2/) و [قسمت سوم](https://stringcast.ir/podcast/badblood3/))
 
-2. آتوسا: کتاب (https://shahreketabonline.com/Products/Details/264912/%D8%A8%D9%87%D8%AA_%D9%88_%D9%84%D8%B1%D8%B2%D9%87)بهت و لرزه ]نوشته (https://en.wikipedia.org/wiki/Am%C3%A9lie_Nothomb)امیلی نوتومب] - مفهومی به نام Ijime در فرهنگ  ژاپن به معنای رفتارهای آزارگرانه سیستماتیک. (https://scholarworks.bgsu.edu/irj/vol4/iss1/6/?utm_source=scholarworks.bgsu.edu%2Firj%2Fvol4%2Fiss1%2F6&utm_medium=PDF&utm_campaign=PDFCoverPages)مقاله ]در مورد رابطه میان شرایط فرد و تفاوتش با جامعه و مورد ایجیمه واقع شدن.
+[دن آریلی](https://danariely.com/) متخصص اقتصاد رفتاری که [تد تاک‌های](https://www.ted.com/talks/dan_ariely_are_we_in_control_of_our_own_decisions?language=en) جالبی داره. آزمایش‌های جالبی در مورد روان‌شناسی انجام داده. [کتاب جالبی](https://knowledge.wharton.upenn.edu/article/dan-ariely-dishonestys-slippery-slope/) داره به نام [The Honest Truth about Dishonesty]((https://books.google.ca/books/about/The_Honest_Truth_about_Dishonesty.html?id=_784uAAACAAJ&redir_esc=y که توی این کتاب از آزمایش‌های جالبی که انجام داده صحبت کرده.
+کتاب [Predictably Irrational](https://www.google.ca/books/edition/Predictably_Irrational/lwKRgkLNgXsC?hl=en) (نابخردی‌های پیش‌بینی‌پذیر) خلاصه در [قسمت 29 بی پلاس](https://bpluspodcast.com/podcast/second-season/%D8%A8%DB%8C%D8%AE%D8%B1%D8%AF%DB%8C%D9%87%D8%A7%DB%8C-%D9%87%D9%85%DB%8C%D8%B4%DA%AF%DB%8C-2/)
 
-
-
-3. برایان بختیاری:(https://t.me/MoadabianDariush) داریوش مودبیان] - کتاب (https://www.amazon.ca/Zero-One-Notes-Startups-Future/dp/0804139296)Zero to one] - درباره این است که به جای کارهای خیلی بزرگ و اهداف بسیار طولانی، درباره حل یک مشکل کوچک فکر کنیم. این نگاه به مرور می‌تواند باعث اتفاقات بزرگی شود.
-
-
-
-۴ - فرن هل‌فروش: مستند (https://www.hbo.com/documentaries/the-inventor-out-for-blood-in-silicon-valley)The Inventor] درمورد خانم (https://en.wikipedia.org/wiki/Elizabeth_Holmes)الیزابت هولمز]. در مورد دستگاه های آزمایش خون که قرار بوده ساخته بشه که بعد از 10 سال به شکست انجامید. کتاب (https://www.google.ca/books/edition/Bad_Blood/dX3HDwAAQBAJ?hl=en&gbpv=0)Bad Blood] کاملا در مورد این موضوع صحبت کرده. (https://pod.link/1071231748) پادکست استرینگ کست] در یه سریال سه قسمتی این داستان رو تعریف کرده ((https://stringcast.ir/podcast/badblood1/)قسمت اول] - (https://stringcast.ir/podcast/badblood2/)قسمت دوم] - (https://stringcast.ir/podcast/badblood3/)قسمت سوم])
-
-
-
-(https://danariely.com/)دن آریلی] متخصص اقتصاد رفتاری که (https://www.ted.com/talks/dan_ariely_are_we_in_control_of_our_own_decisions?language=en)تد تاک ]های جالبی داره. آزمایش های جالبی در مورد روان شناسی شناختی انجام داده. (https://knowledge.wharton.upenn.edu/article/dan-ariely-dishonestys-slippery-slope/)کتاب ]جالبی داره به نام ((https://books.google.ca/books/about/The_Honest_Truth_about_Dishonesty.html?id=_784uAAACAAJ&redir_esc=y)The Honest Truth about Dishonesty]) که توی این کتاب از آزمایش های جالبی که انجام داده صحبت کرده. - کتاب (https://www.google.ca/books/edition/Predictably_Irrational/lwKRgkLNgXsC?hl=en)Predictably Irrational] (نابخردی های پیش بینی پذیر) خلاصه: (https://bpluspodcast.com/podcast/second-season/%D8%A8%DB%8C%D8%AE%D8%B1%D8%AF%DB%8C%D9%87%D8%A7%DB%8C-%D9%87%D9%85%DB%8C%D8%B4%DA%AF%DB%8C-2/)قسمت 29 بی پلاس]
-
-
-
-5- آناهیتا سعید: (https://en.wikipedia.org/wiki/David_A._Sinclair)دیوید سینکلر] بیولوژیست در حوزه ی سالمند شدن و تغییرات بدن و ذهن. (https://www.youtube.com/watch?v=jhKZIq3SlYE)ویدیو ]پادکست در مورد راه هایی برای طولانی کردن طول عمر بشر. کتاب (https://www.google.ca/books/edition/Lifespan/x--oDwAAQBAJ?hl=en&gbpv=0)LifeSpan]
-
-
+5- آناهیتا سعید: [دیوید سینکلر](https://en.wikipedia.org/wiki/David_A._Sinclair) بیولوژیست در حوزه‌ی سالمند شدن و تغییرات بدن و ذهن. [ویدیو پادکست](https://www.youtube.com/watch?v=jhKZIq3SlYE) در مورد راه‌هایی برای طولانی کردن طول عمر بشر. کتاب [LifeSpan](https://www.google.ca/books/edition/Lifespan/x--oDwAAQBAJ?hl=en&gbpv=0)
 
 علی بندری: کتاب ()
 
+6- سولماز: از هفته گذشته: [مجموعه کتاب Dory Fantasmagory Series](https://www.penguinrandomhouse.com/series/DYY/dory-fantasmagory) برای کودکان -  [ترجمه فارسی](https://www.porteghaal.com/products/detail/%D8%AF%D8%B1%DB%8C-%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B3%D9%85%D8%A7%DA%AF%D9%88%D8%B1%DB%8C/105/view/) نلی محجوب - نشر پرتقال. 
 
+[استر پرل](https://www.estherperel.com/) - [کتاب Mating in Captivity](https://www.google.ca/books/edition/Mating_in_Captivity/h5Yh9ExByMkC?hl=en) - [تد تاک‌های](https://www.ted.com/speakers/esther_perel) جالبی داره - [پادکست Where Should We Begin](https://podcasts.apple.com/us/podcast/where-should-we-begin-with-esther-perel/id1237931798)? - [پادکست How's Work?](https://howswork.estherperel.com/) [کتاب The Scientist in the Crib](https://www.harpercollins.com/products/the-scientist-in-the-crib-alison-gopnikandrew-n-meltzoffpatricia-k-kuhl?variant=32207398207522)
 
-6- سولماز:  از هفته گذشته: مجموعه کتاب (https://www.penguinrandomhouse.com/series/DYY/dory-fantasmagory)Dory Fantasmagory Series ]برای کودکان -  (https://www.porteghaal.com/products/detail/%D8%AF%D8%B1%DB%8C-%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B3%D9%85%D8%A7%DA%AF%D9%88%D8%B1%DB%8C/105/view/)ترجمه فارسی] نلی محجوب - نشر پرتقال. 
+7- علی بندری: [لوگان پاول](https://en.wikipedia.org/wiki/Logan_Paul) - بوکسور و یوتیوبر- داستان جالبی داره و از [یوتیوب](https://www.youtube.com/channel/UCG8rbF3g2AMX70yOd8vqIZg/videos) شروع کرد. برای ویدیوهایی که درست می‌کرد با یک رسوایی رو به رو شد ولی تونست شرایط رو عوض کنه. [پادکست](https://www.globalplayer.com/podcasts/42Kq6e/) هم داره. [ویدیوی مسابقه بوکس فلوید میودر و لوگان پاول](https://www.youtube.com/watch?v=WJ9FGoma5-M).
 
+8- علی حجوانی: [پادکست Under the Influence](https://terryoreilly.ca/under-the-influence/) از [Terry O'Reilly]((https://terryoreilly.ca/) - نویسنده تبلیغات، جوک و شوخی. [توئیتر](https://twitter.com/terryoinfluence?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) هم داره - اگر دونستن در مورد تبلیغات براتون مهمه این پادکست رو گوش بدین.
 
+9- حسین کاجی: [ریچارد رورتی](https://en.wikipedia.org/wiki/Richard_Rorty) - متفکر - [مقاله هایدگر، کوندرا و دیکنز](https://www.cambridge.org/core/books/essays-on-heidegger-and-others/heidegger-kundera-and-dickens/A4404D1219B66E7730D011E62B5CD055) از [کتاب Essays on Heidegger and Others](https://www.google.ca/books/edition/Essays_on_Heidegger_and_Others/UCwX_UIu9nEC?hl=en&gbpv=1&dq=Essays+on+Heidegger+and+Others&printsec=frontcover)  - [ترجمه](http://ensani.ir/fa/article/64100/%D9%87%D8%A7%DB%8C%D8%AF%DA%AF%D8%B1-%D9%88-%DA%A9%D9%88%D9%86%D8%AF%D8%B1%D8%A7-%D9%88-%D8%AF%DB%8C%DA%A9%D9%86%D8%B2) از هاله لاجوردی - در مورد این که مشخصه شاخص مدرنیته (یعنی زمانه‌ی حال ما) چی هست؟
 
-(https://www.estherperel.com/)استر پرل] - کتاب (https://www.google.ca/books/edition/Mating_in_Captivity/h5Yh9ExByMkC?hl=en)Mating in Captivity] -(https://www.ted.com/speakers/esther_perel) تد تاک] های جالبی داره - پادکست (https://podcasts.apple.com/us/podcast/where-should-we-begin-with-esther-perel/id1237931798)Where Should We Begin]? - پادکست (https://howswork.estherperel.com/)How's Work?] کتاب (https://www.harpercollins.com/products/the-scientist-in-the-crib-alison-gopnikandrew-n-meltzoffpatricia-k-kuhl?variant=32207398207522)The Scientist in the Crib]
+10- امیلی امرایی: [کتاب](https://www.harpercollins.com/products/then-the-fish-swallowed-him-amir-ahmadi-arian?variant=32132711809058) ([Then the Fish Swallowed Him](https://www.google.ca/books/edition/Then_the_Fish_Swallowed_Him/ZbaeDwAAQBAJ?hl=en&gbpv=1&dq=then+the+fish+swallowed+him&printsec=frontcover)) از امیر احمدی آریان - رمان جالبی هست که با رمان 1984 جورج اورول مقایسه شده. [مصاحبه با نویسنده‌اش در NPR]https://www.npr.org/2020/03/21/819439640/driven-to-the-breaking-point-then-the-fish-swallowed-him?t=1623355711609 - مصاحبه در مجله آفتاب
 
+[داستان‌های انگلیسی صوتی Story party](https://www.audible.ca/pd/Story-Party-The-Complete-Collection-Audiobook/B079TYSM2Y) در [Audible](https://www.audible.ca/?ref=a_pd_Story-_t1_nav_header_logo&pf_rd_p=766c9602-cc78-4efd-9109-3d7eafed6d4d&pf_rd_r=1K3F14F6Z3G7A9NWKA2V)
 
+11-رویا کریمیان: [سریال The Queen's Gambit](https://en.wikipedia.org/wiki/The_Queen%27s_Gambit_(miniseries)) - [Levy Rozman](https://en.wikipedia.org/wiki/Levy_Rozman) - [کانال یوتیوب در مورد شطرنج آنلاین](https://www.youtube.com/channel/UCQHX6ViZmPsWiYSFAyS0a3Q). می‌توانید داستان او و موضوع تقلبی که رخ داده را در این مقاله دنبال کنید که چه مشکلاتی برایش به وجود آمده است؛ مشکلاتی که با وساطت دو تاجر‌، منجر به آشتی و برگزاری یک بازی با جایزه ۲۰ هزار دلاری شد. مقاله مرتبط: [Wired](https://www.wired.com/story/bird-feed-seller-beat-chess-master-online-harassment/)
 
-7- علی بندری: (https://en.wikipedia.org/wiki/Logan_Paul)لوگان پاول] - بوکسور و یوتیوبر- داستان جالبی داره و از(https://www.youtube.com/channel/UCG8rbF3g2AMX70yOd8vqIZg/videos) یوتیوب ]شروع کرد. برای ویدیوهایی که درست میکرد با یک رسوایی رو به رو شد ولی تونست شرایط رو عوض کنه. (https://www.globalplayer.com/podcasts/42Kq6e/)پادکست] هم داره. (https://www.youtube.com/watch?v=WJ9FGoma5-M)ویدیوی] مسابقه بوکس فلوید میودر و لوگان پاول. 
+12- جواد ارجمندی: سهیل مرادی - کلاب و روم‌هایی توی کلاب هاوس در مورد کریپتو و بلاک چین - کانال یوتیوب
 
+13- امیر ایمان‌زاده - [مقاله‌ای در نیویورک تایمز به نام The Criminals Thought the Devices Were Secure. But the Seller Was the F.B.I](https://www.nytimes.com/2021/06/08/world/australia/operation-trojan-horse-anom.html)
 
 
-8- علی حجوانی: پادکست ((https://terryoreilly.ca/under-the-influence/)Under the Influence]) از ((https://terryoreilly.ca/)Terry O'Reilly]) - نویسنده تبلیغات، جوک و شوخی. (https://twitter.com/terryoinfluence?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor)توئیت]ر هم داره - اگر دونستن در مورد تبلیغات براتون مهمه این پادکست رو گوش بدین.
+#تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
 
+#جلسه شماره ۱۵
 
+**این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.**
+**پنجشنبه ۱۳ خرداد ۱۴۰۰ ////// ۳ ژوئن ۲۰۲۱ - ۱۱ شب به وقت تهران**
 
-9- حسین کاجی: (https://en.wikipedia.org/wiki/Richard_Rorty)ریچارد رورتی] - متفکر - (https://www.cambridge.org/core/books/essays-on-heidegger-and-others/heidegger-kundera-and-dickens/A4404D1219B66E7730D011E62B5CD055)مقاله ]هایدگر، کوندرا و دیکنز از کتاب (https://www.google.ca/books/edition/Essays_on_Heidegger_and_Others/UCwX_UIu9nEC?hl=en&gbpv=1&dq=Essays+on+Heidegger+and+Others&printsec=frontcover)Essays on Heidegger and Others]  -(http://ensani.ir/fa/article/64100/%D9%87%D8%A7%DB%8C%D8%AF%DA%AF%D8%B1-%D9%88-%DA%A9%D9%88%D9%86%D8%AF%D8%B1%D8%A7-%D9%88-%D8%AF%DB%8C%DA%A9%D9%86%D8%B2) ترجمه] از هاله لاجوردی - در مورد این که مشخصه شاخص مدرنیته (یعنی زمانه ی حال ما) چی هست؟
+۱- علی بندری: [مقاله‌ای در Medium](https://medium.com/fluxx-studio-notes/52-things-i-learned-in-2020-6a380692dbb8) به اسم 52 چیزی که در سال 2020 یاد گرفتم از تام ویتول که هر سال نوشته می‌شه. چند تا از نکات مقاله‌ای مربوط به سال 2020: کشوری هست به اسم [توالو](https://en.wikipedia.org/wiki/Tuvalu) که جزیره‌ای هست در اقیانوس آرام که 10% درآمد افراد این کشور از دامین .tv هست.
 
+[گزارشی درباره‌ی ایرپاد](https://www.kevinrooke.com/post/apple-airpods-iphone-accessory-or-the-next-big-thing) که گردش مالیش با کل گردش مالی استارتاپ‌ها و شرکت‌های تک رقابت می‌کنه.
 
 
-10- امیلی امرایی: (https://www.harpercollins.com/products/then-the-fish-swallowed-him-amir-ahmadi-arian?variant=32132711809058)کتاب] ((https://www.google.ca/books/edition/Then_the_Fish_Swallowed_Him/ZbaeDwAAQBAJ?hl=en&gbpv=1&dq=then+the+fish+swallowed+him&printsec=frontcover)Then the Fish Swallowed Him]) از امیر احمدی آریان - رمان جالبی هست که با رمان 1984 جورج اورول مقایسه شده. (https://www.npr.org/2020/03/21/819439640/driven-to-the-breaking-point-then-the-fish-swallowed-him?t=1623355711609)مصاحبه با نویسنده ش در NPR] - مصاحبه در مجله آفتاب
+2- علی حجوانی: [سرویس لانگ فورم](https://longform.org/) - [مقاله‌ی The Missing Magritte](https://archive.vanityfair.com/article/2021/6/1/the-missing-magritte) درباره دزدی یک تابلو نقاشی در سال 2009
 
+علی بندری: اگر دنبال گزارش‌هایی مثل گزارش‌هایی می‌گردید که توی چنل بی می‌شنوید، توی سایت لانگ فورم می‌تونید پیداشون کنید.
 
+3- جواد ارجمندی: [کلیدواژه دامین هک](https://en.wikipedia.org/wiki/Domain_hack) - [پادکست سکه](https://sekkepodcast.ir/) پادکستی اقتصادی برای غیراقتصاددان‌ها - اپیزودهای پیشنهادی اپیزود 49 (مهمان: همایون [کاتوزیان](https://fa.wikipedia.org/wiki/%D9%85%D8%AD%D9%85%D8%AF%D8%B9%D9%84%DB%8C_%D9%87%D9%85%D8%A7%DB%8C%D9%88%D9%86_%DA%A9%D8%A7%D8%AA%D9%88%D8%B2%DB%8C%D8%A7%D9%86))، اپیزود 47 (مصاحبه با مسعود نیلی)
 
-داستانهای انگلیسی صوتی (https://www.audible.ca/pd/Story-Party-The-Complete-Collection-Audiobook/B079TYSM2Y)Story party] در (https://www.audible.ca/?ref=a_pd_Story-_t1_nav_header_logo&pf_rd_p=766c9602-cc78-4efd-9109-3d7eafed6d4d&pf_rd_r=1K3F14F6Z3G7A9NWKA2V)Audible ]
+[سایت مکتب خونه](https://maktabkhooneh.org/)- کلاس‌های درس دانشگاه‌های برتر ایران ([دوره‌های دکتر فرهاد نیلی](https://maktabkhooneh.org/teacher/%D9%81%D8%B1%D9%87%D8%A7%D8%AF-%D9%86%DB%8C%D9%84%DB%8C-tch67/) - [دوره‌های دکتر مسعود نیلی](https://maktabkhooneh.org/teacher/%D9%85%D8%B3%D8%B9%D9%88%D8%AF-%D9%86%DB%8C%D9%84%DB%8C-tch108/))
 
+4- سلماز برقگیر: [اپیزود 58 پادکست بی پلاس (زنان نامرئی)](https://bpluspodcast.com/fourth-season/%D8%B2%D9%86%D8%A7%D9%86-%D9%86%D8%A7%D9%85%D8%B1%D8%A6%DB%8C/) - [کتاب زندگی شجاعانه](https://www.goodreads.com/book/show/13588356-daring-greatly) از دکتر برن براون - [تد تاک The Power of Vulnerability](https://www.ted.com/talks/brene_brown_the_power_of_vulnerability?language=en) از [دکتر برنه براون](https://brenebrown.com/) کسی که بیشتر از 10 سال روی «شرم» کار کرده. [کتاب هنر کامل نبودن] (https://www.goodreads.com/book/show/7015403-the-gifts-of-imperfection?ac=1&from_search=true&qid=b940h9BJEE&rank=1).
 
+5- حسین کاجی: [کتاب رازهای سقراطی](https://books.google.ca/books/about/Socratic_Puzzles.html?id=XOVelCewRMIC&redir_esc=y) از [رابرت نازیک](https://en.wikipedia.org/wiki/Robert_Nozick) استاد فلسفه دانشگاه هاروارد - واکنشی هم دارد به کتاب نظریه عدالت (جان رالز) که جمع بین آزادی و برابری هست. - [حلقه دیدگاه نو](https://t.me/didgahenochannel) صحبت درباره چین و رابطه ایران و چین
 
-11-رویا کریمیان: سریال (https://en.wikipedia.org/wiki/The_Queen%27s_Gambit_(miniseries))The Queen's Gambit] -   \
-(https://en.wikipedia.org/wiki/Levy_Rozman)Levy Rozman] - کانال (https://www.youtube.com/channel/UCQHX6ViZmPsWiYSFAyS0a3Q)یوتیوب ]در مورد شطرنج آنلاین. می‌توانید داستان او و موضوع تقلبی که رخ داده را در این مقاله دنبال کنید که چه مشکلاتی برایش به وجود آمده است؛ مشکلاتی که با وساطت دو تاجر،‌منجر به آشتی و برگزاری یک بازی با جازه ۲۰ هزار دلاری شد. مقاله مرتبط: (https://www.wired.com/story/bird-feed-seller-beat-chess-master-online-harassment/)Wired]
+6- علی رجب زاده: [فیلم دکتر استرنجلاو](https://www.imdb.com/title/tt0057012/) از استنلی کوبریک - مفهوم بستن دست در روابط بین‌الملل برای اطمینان از این که طرف مقابل به تعهداتش عمل می‌کند.
 
+7- نیلا والا: [مستند Civilisation](https://en.wikipedia.org/wiki/Civilisation_(TV_series)) ساخت 1969 از BBC در مورد تاریخ هنر که بیشتر به تاریخ هنر غرب  می‌پردازه. این مستند اخیراً در سال 2018 دوباره ساخته شده که این بار جهانی‌تر به موضوع نگاه می‌کنه. - [مجموعه کتاب Dory Fantasmagory Series](https://www.penguinrandomhouse.com/series/DYY/dory-fantasmagory) برای کودکان -  [ترجمه فارسی] (https://www.porteghaal.com/products/detail/%D8%AF%D8%B1%DB%8C-%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B3%D9%85%D8%A7%DA%AF%D9%88%D8%B1%DB%8C/105/view/) نلی محجوب - نشر پرتقال. - [روم هفتگی در مورد کتاب](https://www.clubhouse.com/club/between-books-cultures)
 
+8- سپیده فروزان: [پادکست Tango Club](https://podcasts.apple.com/us/podcast/tango-club/id1207974511) راجع به تاریخ موسیقی تانگو - اپیزودهای پیشنهادی (اپیزود 1، 3 و 5)
 
-12- جواد ارجمندی: سهیل مرادی - کلاب و روم هایی توی کلاب هاوس در مورد کریپتو و بلاک چین - کانال یوتیوب
+9- مهلا علیزاده: [کتاب Hello World](https://books.google.ca/books/about/Hello_World.html?id=72FCDwAAQBAJ&redir_esc=y) - [کتاب The Mathematics of Love](https://www.google.ca/books/edition/The_Mathematics_of_Love/Gk5rBgAAQBAJ?hl=en&gbpv=0)
 
+10- مهشید یاسائی: [کتاب How to be a Patient]((https://www.google.ca/books/edition/How_to_Be_a_Patient/WIZgDwAAQBAJ?hl=en&gbpv=0) - تغییر در ذهنیت ما ایجاد می‌کند که از نگاه دکتر محور تغییر می‌کنیم.
 
+11- فاطیما فخاریان: [وبسایت ask nature]((https://asknature.org/) پروژه‌ای که درمورد این صحبت می‌کنه که می‌تونیم از طبیعت خیلی چیزها یاد بگیریم. [اکانت توییتر](https://twitter.com/AskNatureTweets)- [سایت Beautiful News](https://www.beautifulnews.com/) که فقط خبر خوب و مثبت می‌ذاره.
 
-13- امیر ایمان زاده - (https://www.nytimes.com/2021/06/08/world/australia/operation-trojan-horse-anom.html)مقاله ای] در نیویورک تایمز به نام The Criminals Thought the Devices Were Secure. But the Seller Was the F.B.I
+12- وحید کمالی: [کتاب نبرد هنرمند](http://paykanbook.ir/product/%D9%86%D8%A8%D8%B1%D8%AF-%D9%87%D9%86%D8%B1%D9%85%D9%86%D8%AF/) [The War of Art]((https://www.google.ca/books/edition/The_War_of_Art/sR3hAAAAQBAJ?hl=en&gbpv=0) از [استیون پرسفیلد](https://stevenpressfield.com/) - [کانال یوتوب The Warrior Archetype]((https://www.youtube.com/channel/UCUuZco7pCtIm8UvGm8dp8Yg)
 
+13- امیلی امرایی: ادبیات جنایی در ژاپن - [رمان جنایی فداکاری مظنون مجهول](https://www.google.ca/books/edition/The_Devotion_of_Suspect_X/NLaWDAEACAAJ?hl=en) و [رستگاری یک قدیسه](https://www.google.ca/books/edition/Salvation_of_a_Saint/Qhx_C5ir5VoC?hl=en&gbpv=0) نوشته [Keigo Higashino](https://en.wikipedia.org/wiki/Keigo_Higashino) [Edogawa Ranpo](https://en.wikipedia.org/wiki/Edogawa_Ranpo) - یکی دیگر از نویسندگان این ژانر. 
 
+14- محمدرضا فرهادی: [کتاب فوتبال در آفتاب و سایه] نوشته [ادواردو گالئانو](https://en.wikipedia.org/wiki/Eduardo_Galeano) - [کتاب مکتب دنیای وارونه](https://taaghche.com/book/56106/%D9%85%DA%A9%D8%AA%D8%A8-%D8%AF%D9%86%DB%8C%D8%A7%DB%8C-%D9%88%D8%A7%D8%B1%D9%88%D9%86%D9%87) - [خاطرات حسن کامشاد: کتاب حدیث نفس](https://nashreney.com/content/%D8%AD%D8%AF%DB%8C%D8%AB-%D9%86%D9%81%D8%B3/). برخی از کتاب‌های ترجمه شده توسط ایشون: [کتاب تاریخ بی‌خردی](https://shahreketabonline.com/Products/Details/10796/%D8%AA%D8%A7%D8%B1%DB%8C%D8%AE_%D8%A8%DB%8C%D8%AE%D8%B1%D8%AF%DB%8C) - [کتاب قبله عالم](https://shahreketabonline.com/Products/Details/32886/%D9%82%D8%A8%D9%84%D9%87_%D8%B9%D8%A7%D9%84%D9%85)
 
+خشایار نور: [کتاب ایران؛ برآمدن رضاخان، برافتادن قاجار و نقش انگلیسی‌ها](https://niloofarpublications.com/product/%d8%a7%db%8c%d8%b1%d8%a7%d9%86%e2%80%8f-%d8%a8%d8%b1%d8%a2%d9%85%d8%af%d9%86%e2%80%8f-%d8%b1%d8%b6%d8%a7%d8%ae%d8%a7%d9%86/) نوشته سیروس غنی ترجمه حسن کامشاد که توی بخشی از اون درمورد نقش علی اکبر داور در پیشرفت‌های ایران در زمان رضاشاه صحبت می‌کنه.
 
+15- سینا آزرم: [کتاب قابوس‌نامه](https://fa.wikipedia.org/wiki/%D9%82%D8%A7%D8%A8%D9%88%D8%B3%E2%80%8C%D9%86%D8%A7%D9%85%D9%87)
 
+16 - علیرضا سبحانی: [مستند قرن اقیانوس آرام](https://en.wikipedia.org/wiki/The_Pacific_Century) - پیشنهاد می‌شه حتماً قسمت دوم این مستند به نام «The Meiji Revolution» رو ببینید.
 
+17- بهناز: [پادکست Huberman Lab](https://hubermanlab.com/) - [پادکست On the Media](https://www.wnycstudios.org/podcasts/otm) که مسائل سیاسی آمریکا و بازتاب اون‌ها توی مدیا رو بررسی می‌کنه. - [پادکست Reveal](https://revealnews.org/podcast/) که یه موضوعی رو انتخاب می‌کنه و می‌ره کامل در موردش تحقیق می‌کنه و توضیح می‌ده.
 
+18- آتوسا: مربوط [سریال لوسی](https://channelbpodcast.com/archives/15650) از پادکست چنل بی - ژاپن کشوری هست که ظاهر خیلی مدرنی داره اما مسائل دیگه‌ای درموردش هست - [کتاب بهت و لرزه](https://shahreketabonline.com/Products/Details/264912/%D8%A8%D9%87%D8%AA_%D9%88_%D9%84%D8%B1%D8%B2%D9%87) نوشته [امیلی نوتومب](https://en.wikipedia.org/wiki/Am%C3%A9lie_Nothomb) که داستانش توی ژاپن می‌گذره.
 
-تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
+19- سعیده افضلی: [پادکست فردوسی‌خوانی](https://readingferdowsi.com/) از [امیر خادم](https://twitter.com/amirukhadem?s=20) - [مجموعه کتاب‌های من و داداشم](https://www.bafarzandan.com/kids/shop-main-page/books/books-by-subject/dastani/manodadasham-complet-collection-detail.html)
 
 
+#تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
 
+##جلسه شماره ۱۴
 
-جلسه شماره ۱۵
+**این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.**
 
+**پنجشنبه ۶ خرداد ۱۴۰۰ ////// ۲۷ می ۲۰۲۱ -  ۱۱ شب به وقت تهران**
 
+۱- علی بندری: [زینب توفکچی](https://en.wikipedia.org/wiki/Zeynep_Tufekci) -  درباره امکان بیرون آمدن ویروس کرونا از آزمایشگاه - [مقاله](https://www.theinsight.org/p/how-the-twittermedia-feedback-loop) در [خبرنامه Insight](https://www.theinsight.org)
 
+۲- علی حجوانی: درباره انفجار سال گذشته در بیروت. از منظر شیشه  درمورد شیشه‌هایی که خورد شده و چرا این اتفاق افتاده مقاله [Glass Politics: On Broken Windows in Beirut](http://averyreview.com/issues/52/glass-politics)
 
-این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.
+3- عباس سیدین: [پادکست The Origins Podcast](https://open.spotify.com/show/4aBdrV8k98ZHDxGIeezSC2) که سازنده‌اش [لارنس کراوس](https://en.wikipedia.org/wiki/Lawrence_Krauss) یک فیزیکدان نظری هست. یک پادکست گفتگومحور که بخشی از یک رویداد بزرگ هست. توی گفتگوهاش با جنبه‌های مختلف اون شخصیت آشنا می‌شیم.
 
+سخنرانی خیلی جالب و جذاب لارنس کراوس درباره مفهوم و روش علمی. [سخنرانی The Secret Life of Physicist](https://www.youtube.com/watch?v=h9FurAf4C4g)
 
-
-
-پنجشنبه ۱۳ خرداد ۱۴۰۰ ////// ۳ ژوئن ۲۰۲۱ - ۱۱ شب به وقت تهران
-
-
-
-
-۱- علی بندری:(https://medium.com/fluxx-studio-notes/52-things-i-learned-in-2020-6a380692dbb8) مقاله] ای در (https://medium.com/)Medium] به اسم 52 چیزی که در سال 2020 یاد گرفتم از تام ویتول که هر سال نوشته میشه. چندتا از نکات مقاله ی مربوط به سال 2020: کشوری هست به اسم (https://en.wikipedia.org/wiki/Tuvalu)توالو] که جزیره ای هست در اقیانوس آرام که 10% درآمد افراد این کشور از دامین .tv هست. - 
-
-
-
-
-(https://www.kevinrooke.com/post/apple-airpods-iphone-accessory-or-the-next-big-thing)گزارشی] درباره‌ی ایرپاد که گردش مالیش با کل گردش مالی استارتاپها و شرکت های تک رقابت می‌کنه.
-
-
-
-
-2- علی حجوانی: سرویس (https://longform.org/)لانگ فورم] - مقاله ی (https://archive.vanityfair.com/article/2021/6/1/the-missing-magritte)The Missing Magritte] درباره دزدی یک تابلو نقاشی در سال 2009
-
-
-
-علی بندری: اگر دنبال گزارش هایی مثل گزارش هایی میگردید که توی چنل بی میشنوید، توی سایت لانگ فورم میتونید پیداشون کنید.
-
-
-
-3- جواد ارجمندی: کلیدواژه (https://en.wikipedia.org/wiki/Domain_hack)دامین هک ]- پادکست(https://sekkepodcast.ir/) سکه] پادکستی اقتصادی برای غیراقتصاددان ها - اپیزودهای پیشنهادی اپیزود 49 (مهمان: (https://fa.wikipedia.org/wiki/%D9%85%D8%AD%D9%85%D8%AF%D8%B9%D9%84%DB%8C_%D9%87%D9%85%D8%A7%DB%8C%D9%88%D9%86_%DA%A9%D8%A7%D8%AA%D9%88%D8%B2%DB%8C%D8%A7%D9%86)همایون کاتوزیان])، اپیزود 47 (مصاحبه با مسعود نیلی) - سایت (https://maktabkhooneh.org/)مکتب خونه ]- کلاس‌های درس دانشگاه‌های برتر ایران ((https://maktabkhooneh.org/teacher/%D9%81%D8%B1%D9%87%D8%A7%D8%AF-%D9%86%DB%8C%D9%84%DB%8C-tch67/)دوره های دکتر فرهاد نیلی] - (https://maktabkhooneh.org/teacher/%D9%85%D8%B3%D8%B9%D9%88%D8%AF-%D9%86%DB%8C%D9%84%DB%8C-tch108/)دوره های دکتر مسعود نیلی])
-
-
-
-4- سلماز برقگیر: (https://bpluspodcast.com/fourth-season/%D8%B2%D9%86%D8%A7%D9%86-%D9%86%D8%A7%D9%85%D8%B1%D8%A6%DB%8C/)اپیزود] 58 پادکست بی پلاس (زنان نامرئی) - کتاب (https://www.goodreads.com/book/show/13588356-daring-greatly)زندگی شجاعانه] از دکتر برن براون -(https://www.ted.com/talks/brene_brown_the_power_of_vulnerability?language=en) تد تاک] (The Power of Vulnerability) از دکتر (https://brenebrown.com/)برنه براون] کسی که بیشتر از 10 سال روی «شرم» کار کرده. کتاب (https://www.goodreads.com/book/show/7015403-the-gifts-of-imperfection?ac=1&from_search=true&qid=b940h9BJEE&rank=1)هنر کامل نبودن]. 
-
-
-
-5- حسین کاجی: کتاب (https://books.google.ca/books/about/Socratic_Puzzles.html?id=XOVelCewRMIC&redir_esc=y)رازهای سقراطی ]از (https://en.wikipedia.org/wiki/Robert_Nozick)رابرت نازیک] استاد فلسفه دانشگاه هاروارد - واکنشی هم دارد به کتاب نظریه عدالت (جان رالز) که جمع بین آزادی و برابری هست. - (https://t.me/didgahenochannel)حلقه دیدگاه نو] صحبت درباره چین و رابطه ایران و چین- 
-
-
-
-6- علی رجب زاده: فیلم (https://www.imdb.com/title/tt0057012/)دکتر استرنجلاو] از استنلی کوبریک - مفهوم بستن دست در روابط بین الملل برای اطمینان از این که طرف مقابل به تعهداتش عمل میکند.
-
-
-
-7- نیلا والا: (https://en.wikipedia.org/wiki/Civilisation_(TV_series))مستند] Civilisation ساخت 1969 از BBC در مورد تاریخ هنر که بیشتر به تاریخ هنر غرب  میپردازه. این مستند اخیرا در سال 2018 دوباره ساخته شده که این بار جهانی تر به موضوع نگاه میکنه. - مجموعه کتاب (https://www.penguinrandomhouse.com/series/DYY/dory-fantasmagory)Dory Fantasmagory Series ]برای کودکان -  (https://www.porteghaal.com/products/detail/%D8%AF%D8%B1%DB%8C-%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B3%D9%85%D8%A7%DA%AF%D9%88%D8%B1%DB%8C/105/view/)ترجمه فارسی] نلی محجوب - نشر پرتقال. - (https://www.clubhouse.com/club/between-books-cultures)روم] هفتگی در مورد کتاب
-
-
-
-8- سپیده فروزان: پادکست ((https://podcasts.apple.com/us/podcast/tango-club/id1207974511)Tango Club]) راجع به تاریخ موسیقی تانگو - اپیزودهای پیشنهادی (اپیزود 1، 3 و 5)
-
-
-
-9- مهلا علیزاده: کتاب (https://books.google.ca/books/about/Hello_World.html?id=72FCDwAAQBAJ&redir_esc=y)Hello World] - کتاب ((https://www.google.ca/books/edition/The_Mathematics_of_Love/Gk5rBgAAQBAJ?hl=en&gbpv=0)The Mathematics of Love])
-
-
-
-10- مهشید یاسائی: کتاب ((https://www.google.ca/books/edition/How_to_Be_a_Patient/WIZgDwAAQBAJ?hl=en&gbpv=0)How to be a Patient]) - تغییر در ذهنیت ما ایجاد می‌کند که از نگاه دکتر محور تغییر می‌کنیم.
-
-
-
-11- فاطیما فخاریان: وبسایت ((https://asknature.org/)ask nature)] پروژه ای که درمورد این صحبت میکنه که میتونیم از طبیعت خیلی چیزها یاد بگیریم. (https://twitter.com/AskNatureTweets)اکانت توییتر ]- سایت (https://www.beautifulnews.com/)Beautiful News] که فقط خبر خوب و مثبت میذاره.
-
-
-
-12- وحید کمالی: کتاب (http://paykanbook.ir/product/%D9%86%D8%A8%D8%B1%D8%AF-%D9%87%D9%86%D8%B1%D9%85%D9%86%D8%AF/)نبرد هنرمند] ((https://www.google.ca/books/edition/The_War_of_Art/sR3hAAAAQBAJ?hl=en&gbpv=0)The War of Art]) از (https://stevenpressfield.com/)استیون پرسفیلد ]- کانال یوتوب  ((https://www.youtube.com/channel/UCUuZco7pCtIm8UvGm8dp8Yg)The Warrior Archetype])
-
-
-
-13- امیلی امرایی: ادبیات جنایی در ژاپن - رمان جنایی (https://www.google.ca/books/edition/The_Devotion_of_Suspect_X/NLaWDAEACAAJ?hl=en) فداکاری مظنون مجهول] و (https://www.google.ca/books/edition/Salvation_of_a_Saint/Qhx_C5ir5VoC?hl=en&gbpv=0)رستگاری یک قدیسه] نوشته (https://en.wikipedia.org/wiki/Keigo_Higashino)Keigo Higashino]  \
-(https://en.wikipedia.org/wiki/Edogawa_Ranpo)Edogawa Ranpo] - یکی دیگر از نویسندگان این ژانر. 
-
-
-
-14- محمدرضا فرهادی: کتاب فوتبال در آفتاب و سایه نوشته (https://en.wikipedia.org/wiki/Eduardo_Galeano)ادواردو گالئانو] - کتاب (https://taaghche.com/book/56106/%D9%85%DA%A9%D8%AA%D8%A8-%D8%AF%D9%86%DB%8C%D8%A7%DB%8C-%D9%88%D8%A7%D8%B1%D9%88%D9%86%D9%87)مکتب دنیای وارونه] -  \
-خاطرات حسن کامشاد: کتاب(https://nashreney.com/content/%D8%AD%D8%AF%DB%8C%D8%AB-%D9%86%D9%81%D8%B3/) حدیث نفس ]. برخی از کتاب های ترجمه شده توسط ایشون: کتاب (https://shahreketabonline.com/Products/Details/10796/%D8%AA%D8%A7%D8%B1%DB%8C%D8%AE_%D8%A8%DB%8C%D8%AE%D8%B1%D8%AF%DB%8C)تاریخ بی خردی] - کتاب (https://shahreketabonline.com/Products/Details/32886/%D9%82%D8%A8%D9%84%D9%87_%D8%B9%D8%A7%D9%84%D9%85)قبله عالم]
-
-
-
-خشایار نور: کتاب (https://niloofarpublications.com/product/%d8%a7%db%8c%d8%b1%d8%a7%d9%86%e2%80%8f-%d8%a8%d8%b1%d8%a2%d9%85%d8%af%d9%86%e2%80%8f-%d8%b1%d8%b6%d8%a7%d8%ae%d8%a7%d9%86/)ایران؛ برآمدن رضاخان، برافتادن قاجار و نقش انگلیسی‌ها] نوشته سیروس غنی ترجمه حسن کامشاد که توی بخشی از اون درمورد نقش علی اکبر داور در پیشرفت های ایران در زمان رضاشاه صحبت میکنه.
-
-
-
-15- سینا آزرم: کتاب (https://fa.wikipedia.org/wiki/%D9%82%D8%A7%D8%A8%D9%88%D8%B3%E2%80%8C%D9%86%D8%A7%D9%85%D9%87)قابوس نامه] 
-
-
-
-16 - علیرضا سبحانی: مستند (https://en.wikipedia.org/wiki/The_Pacific_Century)قرن اقیانوس آرام ]- پیشنهاد میشه حتما قسمت دوم این مستند به نام «The Meiji Revolution» رو ببینید.
-
-
-
-17- بهناز: پادکست (https://hubermanlab.com/)Huberman Lab] - پادکست (https://www.wnycstudios.org/podcasts/otm)On the Media] که مسائل سیاسی آمریکا و بازتاب اون ها توی مدیا رو بررسی میکنه. - پادکست (https://revealnews.org/podcast/)Reveal] که یه موضوعی رو انتخاب میکنه و میره کامل در موردش تحقیق میکنه و توضیح میده.
-
-
-
-18- آتوسا: مربوط سریال (https://channelbpodcast.com/archives/15650)لوسی] از پادکست چنل بی - ژاپن کشوری هست که ظاهر خیلی مدرنی داره اما مسائل دیگه ای درموردش هست - کتاب (https://shahreketabonline.com/Products/Details/264912/%D8%A8%D9%87%D8%AA_%D9%88_%D9%84%D8%B1%D8%B2%D9%87)بهت و لرزه ]نوشته (https://en.wikipedia.org/wiki/Am%C3%A9lie_Nothomb)امیلی نوتومب] که داستانش توی ژاپن میگذره.
-
-
-
-19- سعیده افضلی: پادکست(https://readingferdowsi.com/) فردوسی خوانی] از (https://twitter.com/amirukhadem?s=20)امیر خادم] - مجموعه کتاب های (https://www.bafarzandan.com/kids/shop-main-page/books/books-by-subject/dastani/manodadasham-complet-collection-detail.html)من و داداشم]  
-
-
-
- 
-
-
-
-
-
-
-
-
-تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
-
-
-
-
-جلسه شماره ۱۴
-
-
-
-
-این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.
-
-
-
-
-پنجشنبه ۶ خرداد ۱۴۰۰ ////// ۲۷ می ۲۰۲۱ -  ۱۱ شب به وقت تهران
-
-
-
-
-۱- علی بندری: (https://en.wikipedia.org/wiki/Zeynep_Tufekci)زینب توفکچی] -  درباره امکان بیرون آمدن ویروس کرونا از آزمایشگاه  -(https://www.theinsight.org/p/how-the-twittermedia-feedback-loop)مقاله] در خبرنامه (https://www.theinsight.org)Insight] 
-
-
-
-
-۲- علی حجوانی: درباره انفجار سال گذشته در بیروت. از منظر شیشه  درمورد شیشه هایی که خورد شده و چرا این اتفاق افتاده (http://averyreview.com/issues/52/glass-politics)مقاله ]Glass Politics: On Broken Windows in Beirut 
-
-
-
-3- عباس سیدین: پادکست ((https://open.spotify.com/show/4aBdrV8k98ZHDxGIeezSC2)The Origins Podcast]) که سازنده‌ش (https://en.wikipedia.org/wiki/Lawrence_Krauss)لارنس کراوس] یک فیزیکدان نظری هست. یک پادکست گفتگومحور که بخشی از یک رویداد بزرگ هست. توی گفتگوهاش با جنبه های مختلف اون شخصیت آشنا میشیم.
-
-
-
-سخنرانی خیلی جالب و جذاب لارنس کراوس درباره مفهوم و روش علمی. (https://www.youtube.com/watch?v=h9FurAf4C4g)سخنرانی] The Secret Life of Physicist 
-
-
-
-4- برایان بختیاری: (https://www.ycombinator.com)Y Combinator] از(http://www.paulgraham.com) پاول گراهام] که یکی از بهترین ACهای جهان هست. و سرمایه گذار کمپانی های بزرگی مثل Airbnb بوده. (https://www.startupschool.org)Startup School] برنامه‌ی آموزشی رایگان در مورد استارتاپ.  
-
-
+4- برایان بختیاری: [Y Combinator](https://www.ycombinator.com) از [پاول گراهام](http://www.paulgraham.com) که یکی از بهترین ACهای جهان هست و سرمایه‌گذار کمپانی‌های بزرگی مثل Airbnb بوده. [Startup School](https://www.startupschool.org) برنامه‌ی آموزشی رایگان در مورد استارتاپ.  
 
 مقاله ی () از پاول گراهام
 
+5- فریدون نجفی تبار: در مورد سیر تکامل زبان و نسبت آن با جمجمه در فرایند فرگشت. [وبسایت سوشیانس](https://www.soshians.ir/fa/) از دکتر شروین وکیلی که صحبت‌های خیلی جالبی در این مورد داره و منابع زیادی هم اونجا معرفی شده. 
 
+6- سینا کجباف: [ویدیوهایی](https://www.youtube.com/watch?v=kBdfcR-8hEY&list=PL30C13C91CFFEFEA6) از [مایکل سندل](https://en.wikipedia.org/wiki/Michael_Sandel) که 24 جلسه هست که در مورد عدالت صحبت می‌کنه. [وبسایت Justice with Michael Sandel](https://justiceharvard.org). تعدادی از این [ویدیوها زیرنویس شده](https://www.youtube.com/playlist?list=PLJvLV4571wkIabjZ_XSn6cNaA60jwg3dA) - آقای سندل 2 کتاب هم داره. آن چیزی که با پول نمی‌شود خرید. و ()
 
-5- فریدون نجفی تبار: در مورد سیر تکامل زبان و نسبت آن با جمجمه در فرایند فرگشت. وبسایت (https://www.soshians.ir/fa/)سوشیانس] از دکتر شروین وکیلی که صحبت های خیلی جالبی در این مورد داره و منابع زیادی هم اونجا معرفی شده. 
+[پادکست شاهپر](https://pod.link/1567400565) - صدایی برای آشنایی با پرنده‌ها و پرنده‌نگری. [صفحه اینستاگرام پادکست شاهپر] (https://www.instagram.com/shahpar.podcast/?hl=en).
 
+7- رویا کریمیان: [خبرنامه نیویورک تایمز به نام Well](https://www.nytimes.com/section/well) - نمرین‌/چالش‌های روزانه برای آمادگی بازگشت به زندگی بعد از دوران کرونا.
 
+8- مریم ماه: [کتاب How to Change](https://www.katymilkman.com/book) از [کیتی میلکمن](https://www.katymilkman.com) که خیلی علمی در مورد این صحبت کرده که آدم‌ها چطوری می‌تونن حال تازه‌ای داشته باشن.
 
-6- سینا کجباف: (https://www.youtube.com/watch?v=kBdfcR-8hEY&list=PL30C13C91CFFEFEA6)ویدیوهایی] از (https://en.wikipedia.org/wiki/Michael_Sandel)مایکل سندل] که 24 جلسه هست که در مورد عدالت صحبت میکنه. (https://justiceharvard.org)وبسایت] Justice with Michael Sandel. تعدادی از این ویدیوها (https://www.youtube.com/playlist?list=PLJvLV4571wkIabjZ_XSn6cNaA60jwg3dA)زیرنویس شده] - آقای سندل 2 کتاب هم داره. آن چیزی که با پول نمیشود خرید. و ()
-
-
-
-پادکست (https://pod.link/1567400565)شاهپر ]- صدایی برای آشنایی با پرنده‌ها و پرنده‌نگری. صفحه (https://www.instagram.com/shahpar.podcast/?hl=en)اینستاگرام] پادکست شاهپر. 
-
-
-
-7- رویا کریمیان: (https://www.nytimes.com/section/well)خبرنامه] نیویورک تایمز به نام Well - نمرین‌/چالش‌های روزانه برای آمادگی بازگشت به زندگی بعد از دوران کرونا. 
-
-
-
-8- مریم ماه: کتاب (https://www.katymilkman.com/book)How to Change ] از(https://www.katymilkman.com) کیتی میلکمن] که خیلی علمی در مورد این صحبت کرده که آدم ها چطوری میتونن حال تازه ای داشته باشن.
-
-
-
-کتاب ((https://www.theguardian.com/books/2010/jul/17/when-billion-chinese-jump-watts)When a Billion Chinese Jump]) نوشته (https://en.wikipedia.org/wiki/Jonathan_Watts)جاناتان واتس] - در مورد این که جامعه بیشتر از 1 میلیارد نفری چین میتونه چه تاثیری روی جهان بذاره. چه آلودگی ای میتونه ایجاد کنه. (https://www.youtube.com/watch?v=NNHFkW6IuTo)ویدیویی] در همین رابطه که حتما توصیه میشه ببینید.
-
-
+[کتاب When a Billion Chinese Jump]((https://www.theguardian.com/books/2010/jul/17/when-billion-chinese-jump-watts) نوشته [جاناتان واتس](https://en.wikipedia.org/wiki/Jonathan_Watts) - در مورد این که جامعه بیشتر از 1 میلیارد نفری چین می‌تونه چه تاثیری روی جهان بذاره. چه آلودگی‌ای میتونه ایجاد کنه. [ویدیویی](https://www.youtube.com/watch?v=NNHFkW6IuTo) در همین رابطه که حتماً توصیه می‌شه ببینید.
 
 علی بندری: ویدیوهایی در مورد چین در کانال یوتیوب بی پلاس داریم و همچنین در فصل 4 پادکست بی پلاس یک کتاب در مورد چین خواهیم داشت.
 
+9- حسین کاجی: [دکتر محمدرضا سرگلزایی](https://drsargolzaei.com/en/) روانپزشک استاد دانشگاه تهران و [دکتر آذرخش مکری](https://fa.wikipedia.org/wiki/آذرخش_مکری). دکتر سرگلزایی استاد دانشگاه شیراز. آقای سرگلزایی یونگ رو خیلی خوب می‌شناسن و آقای مکری فروید رو خیلی خوب می‌شناسن. تسلط خیلی خوبی هم روی مبحث اعتیاد دارن.
 
+[تاد گرانده](https://www.unhookedmedia.com/todd-grande) روانکاو و پادکستر. [پادکست](https://pod.link/1496024027) جالبی داره و [کانال یوتیوبی](https://www.youtube.com/channel/UCC_0vyFTKk1Nlodo4QsiQkw) رو دارن که مسائل روز رو به خوبی از منظر روان‌شناسی بررسی می‌کنن. مثلاً [جردن پترسون](https://en.wikipedia.org/wiki/Jordan_Peterson) رو بارها بررسی کرده. پادکستش کمی تخصصی‌تر هست و کانال یوتیوبش عمومی‌تر هست.
 
-9- حسین کاجی: دکتر (https://drsargolzaei.com/en/)محمدرضا سرگلزایی] روانپزشک استاد دانشگاه تهران و (https://fa.wikipedia.org/wiki/آذرخش_مکری)دکتر آذرخش مکری]. دکتر سرگلزایی استاد دانشگاه شیراز. آقای سرگلزایی یونگ رو خیلی خوب میشناسن و آقای مکری فروید رو خیلی خوب میشناسن. تسلط خیلی خوبی هم روی مبحث اعتیاد دارن.
+10- ندا: پادکستی برای کودکان به نام [Brains On](https://www.brainson.org) که برای بچه‌های تا 12 سال توصیه می‌شه. بچه‌ها سوالات‌شون رو می‌پرسن که بیشتر دانستنی‌هاست و این‌ها جواب می‌دن.
 
+11- سحر مطلبی: [کانال یوتیوب Smarter everyday](https://www.youtube.com/channel/UC6107grRI4m0o2-emgoDnAA) که توی هر ویدیوش یه بحث جالب علمی رو مطرح می کنه. جلسه 131ش خیلی جالبه.
 
+12- بهروز جعفرنژاد: [اپیزود آخر پادکست Hidden Brain](https://podcasts.apple.com/us/podcast/loss-and-renewal/id1028908750?i=1000522956549) که داستان خیلی جالبی داره. با خانمی به اسم مایا شانکار - Maya Shankar صحبت می‌کنه که قبلاً مشاور کاخ سفید توی علوم رفتاری بوده و الان توی گوگل هست. داستان شروع ایشون خیلی آموزنده‌اس.
 
-(https://www.unhookedmedia.com/todd-grande)تاد گرانده] روانکاو و پادکستر. (https://pod.link/1496024027)پادکست ]جالبی داره و (https://www.youtube.com/channel/UCC_0vyFTKk1Nlodo4QsiQkw)کانال یوتیوبی] رو دارن که مسائل روز رو به خوبی از منظر روان شناسی بررسی میکنن. مثلا (https://en.wikipedia.org/wiki/Jordan_Peterson)جردن پترسون] رو بارها بررسی کرده. پادکستش کمی تخصصی تر هست و کانال یوتیوبش عمومی تر هست.
+علی بندری: [نوال](https://nav.al/) و رشته توئیت مشهورش با اسم [«چطور پولدار شویم»](https://twitter.com/naval/status/1002103360646823936) - قرار هست یک تالار راه‌اندازی کنیم و در مورد این صحبت کنیم که از نوال چه چیزی یاد گرفته‌ایم. یکشنبه 9 خرداد ساعت 11 شب به وقت ایران در کلاب محتوای فارسی
 
+13- آناهیتا سعید: [یک اپیزود](https://www.youtube.com/watch?v=4dC_nRYIDZU)  از [پادکست سم هریس](https://lexfridman.com/sam-harris/) و لکس فریدمن. در مورد این که یاد بگیریم چطور بهتر از ذهن‌مون استفاده کنیم و چطوری کنترل بهتری روی روند تفکرمون داشته باشیم.
 
+14- حسام رحیمیان: [پادکست کیتی میلکمن](https://www.katymilkman.com/podcast) به اسم Choiceology - چرا رنگ بنفش سلطنتی است؟ درباره تولید مصنوعی این رنگ است. و بررسی می‌کند چه قدر به اهداف‌مون در زندگی ادامه بدهیم و چرا دنبال کردن آنها دشوار است.
 
-10- ندا: پادکستی برای کودکان به نام (https://www.brainson.org)Brains On] که برای بچه های تا 12 سال توصیه میشه. بچه ها سوالاتشون رو میپرسن که بیشتر دانستنی هاست و این ها جواب میدن.
+معرفی [کتاب مستطاب آشپزی](https://www.digikala.com/product/dkp-38156/%DA%A9%D8%AA%D8%A7%D8%A8-%D9%85%D8%B3%D8%AA%D8%B7%D8%A7%D8%A8-%D8%A2%D8%B4%D9%BE%D8%B2%DB%8C-%D8%A7%D8%B2-%D8%B3%DB%8C%D8%B1-%D8%AA%D8%A7-%D9%BE%DB%8C%D8%A7%D8%B2-%D8%A7%D8%AB%D8%B1-%D9%86%D8%AC%D9%81-%D8%AF%D8%B1%DB%8C%D8%A7%D8%A8%D9%86%D8%AF%D8%B1%DB%8C-%D8%AF%D9%88-%D8%AC%D9%84%D8%AF%DB%8C) نوشته نجف دریابندری.
 
+15- آرزو عبدی: [پادکست آلبوم](https://albumpodcast.podbean.com) - داستان ساخته شدن یک آلبوم مشهور و بزرگ تاریخ موسیقی جهان. یک سری اپیزود داره این پادکست به نام سانگل که داستان ساخته شدن یک آهنگ مشهور رو تعریف می‌کنه. [اپیزود](https://albumpodcast.podbean.com/e/سانگل-اول-تصور-کن/) جدیدش داستان و ماجرای ساخته شدن آهنگ (تصور کن) از جان لنون.
 
+16- مهشید یاسایی: دوره‌های آنلاین در [موسسه بیدار](http://bidar.school/people/jairan-gahan/) که [دکتر جیران گاهان](https://twitter.com/gahanjairan?lang=en) [استاد تاریخ دانشگاه آلبرتا](https://ualberta.academia.edu/JairanGahan) برگزار می‌کنه. به ماجرای شهرنو نگاه می‌کنن. به آرشیوها نه به عنوان یه منبع دیتا بلکه به عنوان دیتالاین نگاه می‌کنه.
 
-11- سحر مطلبی: (https://www.youtube.com/channel/UC6107grRI4m0o2-emgoDnAA)کانال] یوتیوب Smarter everyday که توی هر ویدیوش یه بحث جالب علمی رو مطرح میکنه. جلسه 131ش خیلی جالبه.
+موسسه بیدار کارگاه‌های کوتاهی در مورد () برگزار می‌کنه.
 
+[کتاب اینترنت با مغز ما چه می‌کند](https://taaghche.com/book/9223/%D8%A7%DB%8C%D9%86%D8%AA%D8%B1%D9%86%D8%AA-%D8%A8%D8%A7-%D9%85%D8%BA%D8%B2-%D9%85%D8%A7-%DA%86%D9%87-%D9%85%DB%8C-%DA%A9%D9%86%D8%AF%D8%9F) - به زبان ساده ولی دقیق و علمی نگاه تئوری رسانه‌ای به اینترنت داره.
 
-
-12- بهروز جعفرنژاد:(https://podcasts.apple.com/us/podcast/loss-and-renewal/id1028908750?i=1000522956549) اپیزود آخر] پادکست Hidden Brain که داستان خیلی جالبی داره. با خانمی به اسم مایا شانکار -  Maya Shankar صحبت میکنه. قبلا مشاور کاخ سفید توی علوم رفتاری بوده و الان توی گوگل هست. داستان شروع ایشون خیلی آموزنده س.
-
-
-
-علی بندری: (https://nav.al/)نوال] و رشته توئیت مشهورش با اسم «(https://twitter.com/naval/status/1002103360646823936)چطور پولدار شویم]» - قرار هست یک تالار راه اندازی کنیم و در مورد این صحبت کنیم که از نوال چه چیزی یاد گرفته ایم. یکشنبه 9 خرداد ساعت 11 شب به وقت ایران در کلاب محتوای فارسی
-
-
-
-13- آناهیتا سعید: یک(https://www.youtube.com/watch?v=4dC_nRYIDZU) اپیزود ]از (https://lexfridman.com/sam-harris/)پادکست] سم هریس و لکس فریدمن. در مورد این که یاد بگیریم چطور بهتر از ذهنمون استفاده کنیم و چطوری کنترل بهتری روی روند تفکرمون داشته باشیم.
-
-
-
-14- حسام رحیمیان: (https://www.katymilkman.com/podcast)پادکست] کیتی میلکمن به اسم Choiceology - چرا رنگ بنفش سلطنتی است؟ درباره تولید مصنوعی این رنگ است. و بررسی می‌کند چه قدر به اهدافمون در زندگی ادامه بدهیم و چرا دنبال کردن آنها دشوار است.
-
-
-
-معرفی (https://www.digikala.com/product/dkp-38156/%DA%A9%D8%AA%D8%A7%D8%A8-%D9%85%D8%B3%D8%AA%D8%B7%D8%A7%D8%A8-%D8%A2%D8%B4%D9%BE%D8%B2%DB%8C-%D8%A7%D8%B2-%D8%B3%DB%8C%D8%B1-%D8%AA%D8%A7-%D9%BE%DB%8C%D8%A7%D8%B2-%D8%A7%D8%AB%D8%B1-%D9%86%D8%AC%D9%81-%D8%AF%D8%B1%DB%8C%D8%A7%D8%A8%D9%86%D8%AF%D8%B1%DB%8C-%D8%AF%D9%88-%D8%AC%D9%84%D8%AF%DB%8C)کتاب] مستطاب آشپزی نوشته نجف دریابندری.
-
-
-
- 15- آرزو عبدی: (https://albumpodcast.podbean.com)پادکست آلبوم] - داستان ساخته شدن یک آلبوم مشهور و بزرگ تاریخ موسیقی جهان. یک سری اپیزود داره این پادکست به نام سانگل که داستان ساخته شدن یک آهنگ مشهور رو تعریف میکنه. (https://albumpodcast.podbean.com/e/سانگل-اول-تصور-کن/)اپیزود ]جدیدش داستان و ماجرای ساخته شدن آهنگ )تصور کن) از جان لنون.
-
-
-
-16- مهشید یاسایی: دوره های آنلاین در (http://bidar.school/people/jairan-gahan/)موسسه بیدار] که (https://twitter.com/gahanjairan?lang=en)دکتر جیران گاهان] (https://ualberta.academia.edu/JairanGahan)استاد تاریخ] دانشگاه آلبرتا برگزار میکنه. به ماجرای شهرنو نگاه میکنن. به آرشیوها نه به عنوان یه منبع دیتا بلکمه به عنوان دیتالاین نگاه میکنه.
-
-
-
-موسسه بیدار کارگاه های کوتاهی در مورد () برگزار میکنه.
-
-
-
-(https://taaghche.com/book/9223/%D8%A7%DB%8C%D9%86%D8%AA%D8%B1%D9%86%D8%AA-%D8%A8%D8%A7-%D9%85%D8%BA%D8%B2-%D9%85%D8%A7-%DA%86%D9%87-%D9%85%DB%8C-%DA%A9%D9%86%D8%AF%D8%9F)کتاب] اینترنت با مغز ما چه میکند - به زبان ساده ولی دقیق و علمی نگاه تئوری رسانه ای به اینترنت داره.
-
-
-
-17-  مهلا علیزاده: (https://erinmeyer.com/books/the-culture-map/)کتاب ]نقشه فرهنگ از (https://erinmeyer.com/about/)ارین میر] درمورد تفاوت های فرهنگی و سو تفاهم هایی که در این رابطه برای آدم ها به وجود میاد. مثال های خیلی جالبی هم میزنه.
-
-
+17-  مهلا علیزاده: [کتاب نقشه فرهنگ](https://erinmeyer.com/books/the-culture-map/) از [ارین میر](https://erinmeyer.com/about/) درمورد تفاوت‌های فرهنگی و سوتفاهم‌هایی که در این رابطه برای آدم‌ها به وجود میاد. مثال‌های خیلی جالبی هم می‌زنه.
 
 2 مستند در زمینه فرهنگ:
+[مستند The Indian Matchmaker](https://www.netflix.com/ca/title/80244565) راجع فرهنگ واسطه که برای ازدواج یا آشنایی توی هند برگزار می‌شه هست. یک فرد هنی 90% تاییدش کرده.
 
+[مستند Hafu - the Mixed-Race Experience in Japan](https://www.amazon.com/Hafu-Mixed-Race-Experience-David-Yano/dp/B082LQCS3V) که درمورد نژادپرستی توی ژاپن هست.
 
+ویدیوی خیلی جالبی The Phone of the Wind در مورد ژاپن و رابطه اون‌ها با ربات و دستگاه‌های خودکار.
 
-(https://www.netflix.com/ca/title/80244565)مستند] The Indian Matchmaker راجع فرهنگ واسطه که برای ازدواج یا آشنایی توی هند برگزار میشه هست. یک فرد هنی 90% تاییدش کرده
+18- خشایار نور: [کانال یوتیوبی](https://www.youtube.com/c/PaolofromTOKYO) در مورد ژاپن - [ویدیویی](https://www.youtube.com/watch?v=q0RX59G2jaA) در مورد اسباب کشی در ژاپن که خیلی با اسباب کشی توی ایران متفاوته!
+ 
+[پادکست بینوشاکست](https://toppodcast.com/podcast_feeds/binoshacast-بینوشاکست/) - اپیزود جدید [مصاحبه با بردیا برجسته‌نژاد](https://pod.link/1420995753/episode/5fa6ab440cb6ef97c2faca789567f4fc) در مورد پادکست آلبوم. ([خلاصه ویدیویی](https://www.youtube.com/watch?v=pEPsFZPrMKY))
 
 
+#تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
 
-(https://www.amazon.com/Hafu-Mixed-Race-Experience-David-Yano/dp/B082LQCS3V)مستند ]Hafu - the Mixed-Race Experience in Japan که  درمورد نژادپرستی  توی ژاپن هست.
+##جلسه شماره ۱۳
 
+**این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.**
 
+**پنجشنبه ۳۰ اردیبهشت۱۴۰۰ - ۱۱ شب به وقت تهران**
 
-ویدیوی خیلی جالبی The Phone of the Wind در مورد ژاپن و رابطه اون ها با ربات و دستگاه های خودکار.
+۱- علی بندری: [کوین کلی ](https://kk.org/) یکی از بنیان‌گذارهای مجله Wired کتاب آینده نزدیک نوشته جدید آقای کلی: [99 نصیحت به مناسبت تولدش](https://kk.org/thetechnium/99-additional-bits-of-unsolicited-advice/)
+۲- عباس سیدین: [آذرخش مکری](https://fa.wikipedia.org/wiki/%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4_%D9%85%DA%A9%D8%B1%DB%8C) استاد روانپزشکی دانشگاه علوم پزشکی تهران [ویدیویی](https://www.youtube.com/watch?v=yWXCTlSo498) در مورد این که با شبه علم باید چه کار کنیم؟ چهارشنبه آخر هر ماه [لایو اینستاگرامی](https://www.instagram.com/azarakhshmokri) در مورد مسائل مربوط به روانشناسی
 
+آدم‌هایی که به جواب‌های ساده رضایت نمی‌دن برام جذاب هستن. مثل [رابرت ساپولسکی](https://g.co/kgs/ui8dEv) یا مثلاً مورخی به اسم [استیون کاتکین](https://g.co/kgs/LNGVLR). این‌ها افرادی هستن که تلاش نمی‌کنن تصویر خوبی ایجاد کنن. - واقع‌بینی، دنبال پیچیدگی گشتن و نترسیدن از این که ویژگی‌های شخصی‌شون رو توی کارشون نشون بدن چیزهایی هست که باعث می‌شه یک نفر رو دنبال کنم. مثل استیون فرای
 
+3- مروارید زندی چی: [برنی براون Brené Brown](https://brenebrown.com/) محقق و استاد دانشگاه - [تدتاک قدرت آسیب‌پذیری](https://www.youtube.com/watch?v=iCvmsMzlF7o) - [سخنرانی فراخوان شجاعت] - (https://www.youtube.com/watch?v=1Evwgu369Jw&feature=emb_imp_woyt) [ویدیویی در مورد تفاوت بین همدلی کردن و همدردی کردن](https://www.netflix.com/ca/title/81010166). - پادکست‌های Dare to Lead و Unlocking Us
 
-18- خشایار نور: (https://www.youtube.com/c/PaolofromTOKYO)کانال یوتیوبی] در مورد ژاپن - (https://www.youtube.com/watch?v=q0RX59G2jaA)ویدیویی ]در مورد اسباب کشی در ژاپن که خیلی با اسباب کشی توی ایران متفاوته! \
- \
-پادکست (https://toppodcast.com/podcast_feeds/binoshacast-بینوشاکست/)بینوشاکست] - اپیزود جدید (https://pod.link/1420995753/episode/5fa6ab440cb6ef97c2faca789567f4fc)مصاحبه با بردیا برجسته‌نژاد] در مورد پادکست آلبوم. ((https://www.youtube.com/watch?v=pEPsFZPrMKY)خلاصه ویدیویی]) 
+4- آناهیتا سعید: [پادکست Lex Fridman Podcast](https://lexfridman.com/podcast/) - [انجمن IFTF](https://www.iftf.org/home/) شغل‌هایی که در آینده خواهند بود. مثلاً 10 سال دیگه چه شغل‌هایی هستن؟ مثلاً پرینتر مواد غذایی مثل پرینت کردن گوشت مثلاً مناسبات اجتماعی چطور خواهند بود؟ حمل و نقل چطور خواهند بود و غیره.
 
+الکس فریدمن آدمی هست که همدلی داره، شنونده خیلی خوبیه و سوالات خیلی خوبی می‌پرسه.
 
+[Tyler Cowen](https://marginalrevolution.com/marginalrevolution/2021/05/it-feels-like-we-are-living-in-a-science-fiction-novel.html) شبیه به این مضمون را درباره چین نوشته است.
 
-تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
+[Balajis - 1729](https://1729.com/author/balajis/) - خبرنامه خیلی جالبی داره که ادعا داره با خوندنش پول می‌گیرید (به صورت رمزارز) مصاحبه‌های خیلی جالبی داره مثل مصاحبه جالبی که با تیم فریس داشته. [خلاصه‌ی تیتروار مصاحبه با تیم فریس](https://danielmiessler.com/blog/a-summary-of-bali-srinivasans-thoughts-on-the-future/). متن کامل مصاحبه با تیم فریس. 
 
+4- بهروز جعفرنژاد: [خبرنامه بری وایس](https://bariweiss.substack.com/) - تو شماره آخرش [بالاجی درمورد این گفته که آینده در دست رمز ارزهاست](https://bariweiss.substack.com/p/is-bitcoin-anarchy-or-civilization). [مایکل گرین هم خلاف این رو این مساله رو گفته](https://bariweiss.substack.com/p/the-case-against-bitcoin).
 
+آدم هایی که ترندها رو زودتر می‌بینن برام جذاب هستن و دنبال می‌کنم.
 
+علی بندری: از بالاجی چطور یاد گرفتن رو یاد می‌گیرم. روش این که چطور اطلاعات رو وارد مغزش می‌کنه. بالاجی 30 ژانویه 2020 توی [توئیتر](https://twitter.com/balajis/status/1222921758375927808?lang=en) یه جورایی در مورد پاندمی کووید پیش‌بینی کرده بود.
 
-جلسه شماره ۱۳
+آدم‌هایی که دنبال کردن‌شون برام جذابه آدم‌هایی هستن که کنجکاون، شنونده‌ی خوبی هستن و بخشنده هستن.
 
+علی حجوانی: آدمی که در مورد اقلیت‌ها صحبت می‌کنه اگر خودش جزو اون اقلیت باشه برام جالب هست. مثل [شرمن الکسی](https://g.co/kgs/rwX5Ff)
 
+5- مهراد معینی: [والتر میشل](https://en.wikipedia.org/wiki/Walter_Mischel) روان‌شناس و نظریه‌پرداز- [کتاب The Marshmallow Test](https://g.co/kgs/xxjLzs) - تستی که روی بچه‌ها انجام می‌شه که آیا جایزه‌ای که در لحظه دارن رو انتخاب می‌کنن یا صبر می‌کنن تا جایزه‌ی بزرگ‌تری بگیرن و این بچه‌ها رو ۲۰ سال دنبال کردن. بچه‌هایی که صبر کرد‌ن بعدها نشون داده شد که آدم‌های موفق‌تری بودن.  این رو می‌شه تعمیم داد به هر موردی در زندگی در اهمیت self control.
 
+[کتاب Scarcity: Why Having Too Little Means So Much Kindle Edition](https://g.co/kgs/W6ZaVi) - ترجمه شده به [فقر احمق می‌کند](https://taaghche.com/book/61077/فقر-احمق-می-کند). یکی از یافته‌های قطعی اینه که وقتی آدم ها حس کنن منابع مالی‌شون کمه و خودشون رو مقایسه کنن اون Marshmallow Test در اون‌ها برانگیخته می‌شه و به دنبال جایزه‌های در دسترس می‌رن. تصمیمات بلند مدت نمی‌تونن بگیرن و فقرشون بیشتر می‌شه و آینده‌نگری‌شون کمتر می‌شه. 
 
-این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.
-
-
-
-
-پنجشنبه ۳۰ اردیبهشت۱۴۰۰ - ۱۱ شب به وقت تهران
-
-
-
-
-۱- علی بندری: (https://kk.org/)کوین کلی ]یکی از بنیان گذارهای مجله Wired کتاب آینده نزدیک نوشته جدید آقای کلی: (https://kk.org/thetechnium/99-additional-bits-of-unsolicited-advice/)99 نصیحت به مناسبت تولدش] \
-۲- عباس سیدین: (https://fa.wikipedia.org/wiki/%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4_%D9%85%DA%A9%D8%B1%DB%8C)آذرخش مکری] استاد روانپزشکی دانشگاه علوم پزشکی تهران (https://www.youtube.com/watch?v=yWXCTlSo498)ویدیویی] در مورد این که با شبه علم باید چه کار کنیم؟ چهارشنبه آخر هر ماه (https://www.instagram.com/azarakhshmokri)لایو اینستاگرامی] در مورد مسائل مربوط به روانشناسی
-
-
-
-
-آدم هایی که به جواب های ساده رضایت نمیدن برام جذاب هستن. مثل (https://g.co/kgs/ui8dEv)رابرت ساپولسکی] یا مثلا مورخی به اسم (https://g.co/kgs/LNGVLR)استیون کاتکین]. این ها افرادی هستن که تلاش نمیکنن تصویر خوبی ایجاد کنن. - واقع بینی، دنبال پیچیدگی گشتن و نترسیدن از این که ویژگی های شخصی شون رو توی کارشون نشون بدن چیزهایی هست که باعث میشه یک نفر رو دنبال کنم. مثل استیون فرای
-
-
-
-3- مروارید زندی چی: (https://brenebrown.com/)برنی براون ]Brené Brown محقق و استاد دانشگاه - (https://www.youtube.com/watch?v=iCvmsMzlF7o)تدتاک قدرت آسیب پذیری] - سخنرانی(https://www.netflix.com/ca/title/81010166) فراخوان شجاعت] - (https://www.youtube.com/watch?v=1Evwgu369Jw&feature=emb_imp_woyt)ویدیویی] در مورد تفاوت بین همدلی کردن و همدردی کردن. - پادکست های Dare to Lead و Unlocking Us
-
-
-
-4- آناهیتا سعید: (https://lexfridman.com/podcast/)پادکست Lex Fridman Podcast] - انجمن (https://www.iftf.org/home/)IFTF] - شغل هایی که در آینده خواهند بود. مثلا 10 سال دیگه چه شغل هایی هستن؟ مثلا پرینتر مواد غذایی مثل پرینت کردن گوشت مثلا مناسبات اجتماعی چطور خواهند بود؟ حمل و نقل چطور خواهند بود و غیره.
-
-
-
-لکس فریدمن آدمی هست که همدلی داره، شنونده خیلی خوبیه و سوالات خیلی خوبی میپرسه.
-
-
-
-(https://marginalrevolution.com/marginalrevolution/2021/05/it-feels-like-we-are-living-in-a-science-fiction-novel.html)Tyler Cowen] شبیه به این مضمون را درباره چین نوشته است.
-
-
-
-(https://1729.com/author/balajis/)Balajis] - 1729 - خبرنامه خیلی جالبی داره که ادعا داره با خوندنش پول میگیرید (به صورت رمزارز) مصاحبه های خیلی جالبی داره مثل مصاحبه جالبی که با تیم فریس داشته. (https://danielmiessler.com/blog/a-summary-of-bali-srinivasans-thoughts-on-the-future/)خلاصه‌ی] تیتروار مصاحبه با تیم فریس. متن کامل مصاحبه با تیم فریس. 
-
-
-
-4- بهروز جعفرنژاد: (https://bariweiss.substack.com/)خبرنامه بری وایس] - تو شماره آخرش  (https://bariweiss.substack.com/p/is-bitcoin-anarchy-or-civilization)بالاجی درمورد این گفته] که آینده در دست رمز ارزهاست. (https://bariweiss.substack.com/p/the-case-against-bitcoin)مایکل گرین هم خلاف این رو این مساله رو گفته].
-
-
-
-آدم هایی که ترندها رو زودتر میبینن برام جذاب هستن و دنبال میکنم.
-
-
-
-علی بندری: از بالاجی چطور یاد گرفتن رو یاد میگیرم. روش این که چطور اطلاعات رو وارد مغزش میکنه. بالاجی 30 ژانویه 2020 توی(https://twitter.com/balajis/status/1222921758375927808?lang=en) توئیتر] یه جورایی در مورد پاندمی کووید پیش بینی کرده بود.
-
-
-
-آدم هایی که دنبال کردنشون برام جذابه آدم هایی هستن که کنجکاون، شنونده ی خوبی هستن و بخشنده هستن.
-
-
-
-علی حجوانی: آدمی که در مورد اقلیت ها صحبت میکنه اگر خودش جزو اون اقلیت باشه برام جالب هست. مثل (https://g.co/kgs/rwX5Ff)شرمن الکسی ]
-
-
-
-5- مهراد معینی: (https://en.wikipedia.org/wiki/Walter_Mischel)والتر میشل] روان شناس و نظریه پرداز- (https://g.co/kgs/xxjLzs)کتاب] The Marshmallow Test - تستی که روی بچه‌ها انجام می‌شه که آیا جایزه‌ای که در لحظه دارن رو انتخاب می‌کنن یا صبر می‌کنن تا جایزه‌ی بزرگ‌تری بگیرن و این بچه‌ها رو ۲۰ سال دنبال کردن. بچه‌هایی که صبر کرده‌ن بعدها نشون داده شد که آدم‌های موفق‌تری بودن.  این رو می‌شه تعمیم داد به هر موردی در زندگی در اهمیت self control.
-
-
-
-(https://g.co/kgs/W6ZaVi)کتاب] Scarcity: Why Having Too Little Means So Much Kindle Edition - ترجمه شده به (https://taaghche.com/book/61077/فقر-احمق-می-کند)فقر احمق می‌کند]. یکی از یافته‌های قطعی اینه که وقتی آدم ها حس کنن منابع مالی‌شون کمه و خودشون رو مقایسه کنن اون Marshmallow Test در اون‌ها برانگیخته می‌شه و به دنبال جایزه‌های در دسترس می‌رن. تصمیمات بلند مدت نمی‌تونن بگیرن و فقرشون بیشتر می‌شه و آینده‌نگری‌شون کمتر می‌شه. 
-
-
-
-پادکست (https://epitomebooks.ir/)اپیتومی بوکس] خلاصه این کتاب رو تعریف کرده.
-
-
+پادکست [اپیتومی بوکس](https://epitomebooks.ir/) خلاصه این کتاب رو تعریف کرده.
 
 6- حسین کاجی: نوید بازرگان استاد زبان فارسی دانشگاه مریلند - شرح مثنوی رو ارائه دادن.
 
+فیلسوفی به اسم [مارتا نوس‌بام](https://en.wikipedia.org/wiki/Martha_Nussbaum) در مورد اخلاق حیوانات فعالیت‌هایی انجام می‌ده. - [کتاب The Monarchy of Fear سلطنت ترس](https://taaghche.com/book/94373/سلطنت-ترس)
 
+7- هلی هندسی: [دیوید کسلر](https://grief.com) متخصص مرگ و سوگواری - [کتاب ششمین مرحله سوگواری (Finding Meaning: The Sixth Stage of Grief)](https://g.co/kgs/5a6NzL) - [الیزابت کوبلر-راس](https://g.co/kgs/yJmLcu) استاد دیوید کسلر بوده و نظریه‌ی ۵ مرحله‌ی سوگواری رو داره. - [اینستاگرام دیوید کسلر](https://www.instagram.com/iamdavidkessler/)
 
-فیلسوفی به اسم (https://en.wikipedia.org/wiki/Martha_Nussbaum)مارتا نوس‌بام] در مورد اخلاق حیوانات فعالیت هایی انجام میده. - کتاب The Monarchy of Fear(https://taaghche.com/book/94373/سلطنت-ترس) سلطنت ترس]
+[کتاب رنج و التیام](https://www.goodreads.com/book/show/17306541) از جی. ویلیام وردن با ترجمه‌ی محمد قائد در مورد سوگواری
 
+[پادکست هلی تاک](https://hellitalk.com/) به موضوعات توسعه فردی می‌پردازه. توی هر قسمت درباره یه مهارت یا یه موضوع صحبت می‌کنیم که فارغ از این که شما چند سال‌تونه، شغل‌تون چیه، هدف‌تون چیه، می‌تونه بهتون کمک کنه تا در مسیر موفقیت قرار بگیرین، پیشرفت کنین، و سطح رضایت‌تون رو از زندگی بالاتر ببرین.
 
+8- حسام رحیمیان: [مستند Life in Color](https://g.co/kgs/2kW7pf) از [دیوید اتنبرو](https://en.wikipedia.org/wiki/David_Attenborough) یکی از مستندسازهای بی بی سی. هر قسمت‌اش درمورد یک دیدگاه از رنگ در طبیعت صحبت می‌کنه.
 
-7- هلی هندسی:(https://grief.com) دیوید کسلر] - متخصص مرگ و سوگواری - (https://g.co/kgs/5a6NzL)کتاب] ششمین مرحله سوگواری -  Finding Meaning: The Sixth Stage of Grief -(https://g.co/kgs/yJmLcu) الیزابت کوبلر-راس ]استاد دیوید کسلر بوده و نظریه‌ی ۵ مرحله‌ی سوگواری رو داره. - (https://www.instagram.com/iamdavidkessler/)اینستاگرام دیوید کسلر]
+[مستند My Octopus Teacher](https://www.netflix.com/no-en/title/81045007) ساخته [کریگ فاستر](https://en.wikipedia.org/wiki/Craig_Foster_(filmmaker)). توی آفریقای جنوبی می‌ره توی اقیانوس یک سال شنا می‌کنه و به یک اختاپوسی بر می‌خوره که خیلی جالبه.
 
+9- برایان بختیاری: [جی پی تری ۳](https://en.wikipedia.org/wiki/GPT-3) - یک هوش مصنوعی خیلی جالب که اطلاعات خیلی زیادی داره و می‌شه باهاش کلی بحث کرد. چیزی شبیه به [فیلم سینمایی Her](https://www.imdb.com/title/tt1798709/)
 
+10- نیکی شین: [تراژدی فرد وست](https://en.wikipedia.org/wiki/Fred_West) و همسرش [رز وست](https://en.wikipedia.org/wiki/Rose_West) در انگلستان مشابه اتفاقی که جدیداً توی ایران افتاده. مستندی در مورد همین پرونده در سال ۲۰۰۸ ساخته شده به نام [Fred & Rose: The West Murders](https://www.imdb.com/title/tt7669188/)
 
-(https://www.goodreads.com/book/show/17306541)کتاب] رنج و التیام از جی. ویلیام وردن با ترجمه‌ی محمد قائد در مورد سوگواری
+11- علی حجوانی: [مقاله‌ای](https://www.fastcompany.com/90635203/ibm-chinese-typewriter-lois-lew) درمورد تجربه آشنایی با زنی که آدم جالبیه. خانمی که متولد 1924 بوده و در سال 1947 داشته یک [ماشین تایپ IBM](https://vimeo.com/173643906) رو به زبان چینی تایپ می‌کرده.
 
+12- سپیده آلاسی: [پادکست استرینگ کست](https://stringcast.ir/) اپیزودی در مورد زندگی اختاپوس‌ها و اپیزودی در مورد تست مارشمالو
 
+[کتاب The Hidden Life of Trees](https://www.goodreads.com/book/show/28256439-the-hidden-life-of-trees?ac=1&from_search=true&qid=nssE2xK0St&rank=1)
 
-(https://hellitalk.com/)پادکست هلی تاک] به موضوعات توسعه فردی می پردازه. توی هر قسمت درباره یه مهارت یا یه موضوع صحبت می‌کنیم که فارغ از اینکه شما چند سالتونه، شغلتون چیه، هدفتون چیه، می‌تونه بهتون کمک کنه تا در مسیر موفقیت قرار بگیرین، پیشرفت کنین، و سطح رضایتتون رو از زندگی بالاترببرین.
+13- علی بندری:  [پاول گراهام](http://paulgraham.com/richnow.html) [مقاله‌ای](http://www.paulgraham.com/) دارد که مردم چگونه ثروت‌مند می‌شوند.
 
+The Zero Marginal Cost Society] -14](https://www.amazon.ca/Zero-Marginal-Cost-Society-Collaborative/dp/1137278463) - هزینه نهایی صفر 
 
+#آدم‌ها و چیزهای جالبی که توی این تالار شناختم
 
-8- حسام رحیمیان: مستند (https://g.co/kgs/2kW7pf)Life in Color] از (https://en.wikipedia.org/wiki/David_Attenborough)دیوید اتنبرو] یکی از مستندسازهای بی بی سی. هر قسمتش درمورد یک دیدگاه از رنگ در طبیعت صحبت میکنه.
+##جلسه شماره ۱۲
 
+**این هفته درباره‌ی آدم‌های جالبی حرف می‌زنیم که دنبال‌شون می‌کنیم و اینجا یعنی در همین جلسات پنجشنبه‌ها باهاشون آشنا شدیم.**
 
+**پنجشنبه ۲۳ اردیبهشت۱۴۰۰ - ۱۱ شب به وقت تهران**
 
-مستند (https://www.netflix.com/no-en/title/81045007)My Octopus Teacher] ساخته (https://en.wikipedia.org/wiki/Craig_Foster_(filmmaker))کریگ فاستر]. توی آفریقای جنوبی میره توی اقیانوس یک سال شنا میکنه و به یک اختاپوسی برمی خوره که خیلی جالبه. 
+۱- علی بندری: جیسون کلکنیس - Jason Calacanis
 
-
-
-9- برایان بختیاری: (https://en.wikipedia.org/wiki/GPT-3)جی پی تری ۳] - یک هوش مصنوعی خیلی جالب که اطلاعات خیلی زیادی داره و میشه باهاش کلی بحث کرد. چیزی شبیه به فیلم سینمایی (https://www.imdb.com/title/tt1798709/)Her]
-
-
-
-10- نیکی شین: تراژدی (https://en.wikipedia.org/wiki/Fred_West)فرد وست] و همسرش (https://en.wikipedia.org/wiki/Rose_West)رز وست] در انگلستان مشابه اتفاقی که جدیدا توی ایران افتاده. مستندی در مورد همین پرونده در سال ۲۰۰۸ ساخته شده به نام (https://www.imdb.com/title/tt7669188/)Fred & Rose: The West Murders ]
-
-
-
-11- علی حجوانی: (https://www.fastcompany.com/90635203/ibm-chinese-typewriter-lois-lew)مقاله ای] درمورد تجربه آشنایی با زنی که آدم جالبیه. خانمی که متولد 1924 بوده و در سال 1947 داشته یک (https://vimeo.com/173643906)ماشین تایپ] IBM رو به زبان چینی تایپ میکرده.
-
-
-
-12- سپیده آلاسی: (https://stringcast.ir/)پادکست استرینگ کست] اپیزودی در مورد زندگی اختاپوس ها و اپیزودی در مورد تست مارشمالو
-
-
-
-کتاب (https://www.goodreads.com/book/show/28256439-the-hidden-life-of-trees?ac=1&from_search=true&qid=nssE2xK0St&rank=1)The Hidden Life of Trees]
-
-
-
-13- علی بندری:  (http://www.paulgraham.com/)پاول گراهام] - (http://paulgraham.com/richnow.html)مقاله‌ای] دارد که مردم چگونه ثروت‌مند می‌شوند.
-
-
-
-(https://www.amazon.ca/Zero-Marginal-Cost-Society-Collaborative/dp/1137278463)The Zero Marginal Cost Society]-14- هزینه نهایی صفر 
-
-
-
-
-
-
-
-
-آدم‌ها و چیزهای جالبی که توی این تالار شناختم
-
-
-
-
-جلسه شماره ۱۲
-
-
-
-
-این هفته درباره‌ی آدم‌های جالبی حرف می‌زنیم که دنبالشون می‌کنیم و اینجا یعنی در همین جلسات پنجشنبه‌ها باهاشون آشنا شدیم.
-
-
-
-
-پنجشنبه ۲۳ اردیبهشت۱۴۰۰ - ۱۱ شب به وقت تهران
-
-
-
-
-۱- علی بندری: جیسون کلکنیس - Jason Calacanis-  - 
-
-
-
-
-(https://thisweekinstartups.com/)پادکست]: This Week in Startup
-
-
+[پادکست This Week in Startup](https://thisweekinstartups.com/)
 
 با آدم‌هایی صحبت می‌کند که خیلی وقت پیش استارتاپ کوچکی داشته‌اند و الان بزرگ شده‌اند. مثل اوبر. یک اپیزود درباره دادگاه عالی فیس‌بوک دارد. فیس‌بوک می‌گوید کار ما خیلی سخت است. قبول. ما هم این همه قدرت را نمی‌خواهیم. یک تیمی باید بتواند نظر بدهد و نظرش را می‌تواند حتی به مدیرعامل فیس‌بوک هم اعمال کند. یکی از اولین تصمیم‌های این کمیته، تعلیق دائمی ترامپ از فیس‌بوک بود. این فرد از نسل اول‌های دات کام است.
 
-
-
-
 سال ۲۰۱۸ قضاوتش این بود که چون زاکربرگ به نظرم آدم خوبی نیست، من سهام فیس‌بوک را فروختم.
 
+۲- [پادکست Where should we begin](https://podcasts.apple.com/us/podcast/where-should-we-begin-with-esther-perel/id1237931798) -  استر پرل - esther perel - یک تراپیست که جلسه‌های تراپی را پخش می‌کند و روی آن توضیح می‌دهد. می‌فهمیم که یک روانشناس چطوری فکر می‌کند. به خصوص کاپل تراپی. از همه زندگی خود صحبت می‌کنند و اول این را روشن کرد. اینکه یک روانشناس خوب چطور حرف می‌زند. در این پادکست هر دفعه با ماجرایی آشنا می‌شویم و می‌بینیم که چه قدر متنوع است و چه قدر پیچیدگی‌هایی دارد. قضیه پشت صحنه یک کاپل تراپی. ماجرای زوج جوانی بود که از یک اقلیتی در آمریکا می‌آمدند که کامیونیتی سفت و سختی داشتند و حالا در سکس مشکل داشتند و طی یک ماجرای غیرقابل پیش‌بینی‌ای خانمی که در رابطه بود در حال آزمون راه‌های بیرون از ازدواج. می‌خواستند ببینید این موضوع را چگونه می‌توانند حل کنند. این توضیحی که می‌گوید جالب است. هیچ قضاوتی در آن نبوده. شما در اولین جلسه از روانشناس می‌شنوید که من تو را قضاوت نمی‌کنم.
 
+۳- گیتی عاصمی: خانم [ماریا پاپوآ ](https://www.brainpickings.org/about/)، یا [Maria Popova](https://twitter.com/brainpicker)- در یک آژانس تبلیغاتی کار می‌کرده، خبرنامه جمع می‌کرده و برای همکارانش می‌فرستاده است. بعد فکر می‌کنه به پیشنهاد همکارانش که این را گسترده‌تر کند. مثلا شرکت کناری هم می‌آید و همه عضو این خبرنامه می‌شوند. آنقدر دنبال‌کننده‌هایش رشد می‌کنند که این به کار اصلی‌اش تبدیل می‌شود. خیلی هم خوب این کار را می‌کند. جالبی اینه که نیامده در این قالب کار خود را شروع کند. از یک خبرنامه دورهمی شروع کرده. این در رنکینگ ده خبرنامه بالای یک میلیون - دو میلیون دنبال‌کننده بود در دنیا.
 
-۲- (https://podcasts.apple.com/us/podcast/where-should-we-begin-with-esther-perel/id1237931798)پادکست ] Where should we begin -  استر پرل - esther perel - یک تراپیست که جلسه‌های تراپی را پخش می‌کند و روی آن توضیح می‌دهد. می‌فهمیم که یک روانشناس چطوری فکر می‌کند. به خصوص کاپل تراپی. از همه زندگی خود صحبت می‌کنند و اول این را روشن کرد. اینکه یک روانشناس خوب چطور حرف می‌زند. در این پادکست هر دفعه با ماجرایی آشنا می‌شویم و می‌بینیم که چه قدر متنوع است و چه قدر پیچیدگی‌هایی دارد. قضیه پشت صحنه یک کاپل تراپی. ماجرای زوج جوانی بود که از یک اقلیتی در آمریکا می‌آمدند که کامیونیتی سفت و سختی داشتند و حالا در سکس مشکل داشتند و طی یک ماجرای غیرقابل پیش‌بینی‌ای خانمی که در رابطه بود در حال آزمون راه‌های بیرون از ازدواج. می‌خواستند ببینید این موضوع را چگونه می‌توانند حل کنند. این توضیحی که می‌گوید جالب است. هیچ قضاوتی در آن نبوده. شما در اولین جلسه از روانشناس می‌شنوید که من تو را قضاوت نمی‌کنم.
-
-
-
-۳- گیتی عاصمی: (https://twitter.com/brainpicker)ماریا پاپوآ ] - (https://www.brainpickings.org/about/)Maria Popova] - در یک آژانس تبلیغاتی کار می‌کرده، خبرنامه جمع می‌کرده و برای همکارانش می‌فرستاده است. بعد فکر می‌کنه به پیشنهاد همکارانش که این را گسترده‌تر کند. مثلا شرکت کناری هم می‌آید و همه عضو این خبرنامه می‌شوند. انقدر دنبال‌کننده‌هایش رشد می‌کنند که این به کار اصلی‌اش تبدیل می‌شود. خیلی هم خوب این کار را می‌کند. جالبی اینه که نیامده در این قالب کار خود را شروع کند. از یک خبرنامه دورهمی شروع کرده. این در رنکینگ ده خبرنامه بالای یک میلیون - دو میلیون دنبال‌کننده بود در دنیا.
-
-
-
-یک(https://www.brainpickings.org/2020/09/11/keith-haring-journals/) پستی] داشت. درباره کتابی حرف می‌زد که راجع به کیت هرینگ Keith Haring نوشته شده بود. گروه هدفشان کودکان و نوجوانان بودند. می‌گفتند هدف ما این بوده او را معرفی کنیم. به عنوان یک هنرمند. چیزی که در معرفی کتاب جذاب بود می‌گفتند که ما بیشتر می‌خواهیم او را معرفی کنیم. کتاب قشنگی درست کنیم که ورق بزنند و با ایده‌های ترینگ آشنا شوند. زیرا نیاز دارند خودشان هم ایده‌هایی بگیرند که سرعتش کمتر از تاثیرپذیری از اینترنت است. مساله‌ای که الان درباره نسل Z می‌گویند این است که سرعت آپدیت شدن اطلاعات زیاد است و نمی‌گذارد در موضوعاتی عمیق شوند و خوب فکر کنند. می‌خواهم این کودکان چیز جدیدی را خلق کنند.
-
-
+[یک پستی](https://www.brainpickings.org/2020/09/11/keith-haring-journals/) داشت. درباره کتابی حرف می‌زد که راجع به کیت هرینگ Keith Haring نوشته شده بود. گروه هدف‌شان کودکان و نوجوانان بودند. می‌گفتند هدف ما این بوده او را معرفی کنیم. به عنوان یک هنرمند. چیزی که در معرفی کتاب جذاب بود می‌گفتند که ما بیشتر می‌خواهیم او را معرفی کنیم. کتاب قشنگی درست کنیم که ورق بزنند و با ایده‌های ترینگ آشنا شوند. زیرا نیاز دارند خودشان هم ایده‌هایی بگیرند که سرعتش کمتر از تاثیرپذیری از اینترنت است. مساله‌ای که الان درباره نسل Z می‌گویند این است که سرعت آپدیت شدن اطلاعات زیاد است و نمی‌گذارد در موضوعاتی عمیق شوند و خوب فکر کنند. می‌خواهم این کودکان چیز جدیدی را خلق کنند.
 
 این پست به شما کمک می‌کند که این خبرنامه را بهتر بشناسید. خود پوپووا تصویرگر است.
 
+۴- حسام رحیمیان: تیم هارفورد - [Tim Harford](https://timharford.com/) - نویسنده‌ی اقتصادی. مقاله‌نویس نویسنده‌ی کتاب و سازنده‌ي پادکست. [More and less](https://www.bbc.co.uk/programmes/p02nrss1/episodes/downloads) و [پادکست Cautionary Tales](https://timharford.com/articles/cautionarytales/) محتوای اقتصادی برای عموم تولید می‌کنه. 
 
+کتاب‌های اقتصادی می‌نویسه که یک فرمول و نمودار توشون نیست. سعی کرده داستان‌گویی درباره اقتصاد صحبت کند. وقتی این داستان‌ها را می‌خوانی به خریدهایی که انجام می‌دهی یا بیزینس‌ها چگونه کار می‌کنند، دید متفاوتی به آدم‌ها می‌دهد. کسانی که به اقتصاد علاقه دارند ولی می‌خواهند بدون نمودار دنبال کنند، می‌توانند به این فرد مراجعه کنند.
 
-۴- حسام رحیمیان: تیم هارفورد - (https://timharford.com/)Tim Harford] - نویسنده‌ی اقتصادی. مقاله‌نویس نویسنده‌ی کتاب و سازنده‌ي پادکست. (https://www.bbc.co.uk/programmes/p02nrss1/episodes/downloads)More and less] و پادکست (https://timharford.com/articles/cautionarytales/)Cautionary Tales] محتوای اقتصادی برای عموم تولید می‌کنه. 
+نکته: مسايل را یک جوری یاد بگیرید که بتوانید به بقیه هم یاد بدهید.
 
+۵- حسین کاجی: شاهرخ مسکوب ۱۳۰۲ تا ۱۳۸۴ روشنفکر ایرانی که در جوانی چپ بود و بعدها تغییر عقیده داد. [کتاب «روزها در راه»(https://www.goodreads.com/book/show/1967142._)  را دارم می‌خوانم که زندگینامه خودش است. اتوبیوگرافی را خیلی دوست دارم و حالت ایده‌آل کتاب زندگی خودنوشته راسل بوده است با ترجمه احمد بیرشک. در فارسی حس می‌کردم که به خاطر مسائل فرهنگی ما معمولا کسی خودزندگینامه شفاف و صریح و صادقانه‌ای ننوشته بود. خواندن این کتاب دوره تاریخ روشنفکری ایران است. در جریان‌های مختلف سیاسی اجتماعی ایران بوده است. مسکوب خیلی وقت‌ها نام را کامل نمی‌آورد ولی جالب است. مسکوب خیلی صادقانه این مسائل را می‌نویسد. مجبور می‌شود برود پاریس. مشکلاتی که با همسرش داشته. 
 
-
-کتابهای اقتصادی می‌نویسه که یک فرمول و نمودار توشون نیست. سعی کرده دا داستان‌گویی درباره اقتصاد صحبت کند. وقتی این داستان‌ها را می‌خوانی به خریدهایی که انجام می‌دهی یا بیزینس‌ها چگونه کار می‌کنند، دید متفاوتی به آدم‌ها می‌دهد. کسانی که به اقتصاد علاقه دارند ولی می‌خواهند بدون نمودار دنبال کنند، می‌توانند به این فرد مراجعه کنند.
-
-
-
-نکته: مسايل را یک جوری یاد بگیرید که بتوانید به بقیه هم یاد بدهید. 
-
-
-
-۵- حسین کاجی: شاهرخ مسکوب ۱۳۰۲ تا ۱۳۸۴ روشنفکر ایرانی که در جوانی چپ بود و بعدها تغییر عقیده داد. کتاب «(https://www.goodreads.com/book/show/1967142._)روزها در راه]»  را دارم می‌خوانم که زندگینامه خودش است. اتوبیوگرافی را خیلی دوست دارم و حالت ایده‌آل کتاب زندگی خودنوشته راسل بوده است با ترجمه احمد بیرشک. در فارسی حس می‌کردم که به خاطر مسائل فرهنگی ما معمولا کسی خودزندگینامه شفاف و صریح و صادقانه‌ای ننوشته بود. خواندن این کتاب دوره تاریخ روشنفکری ایران است. در جریان‌های مختلف سیاسی اجتماعی ایران بوده است. مسکوب خیلی وقت‌ها نام را کامل نمی‌آورد ولی جالب است. مسکوب خیلی صادقانه این مسائل را می‌نویسد. مجبور می‌شود برود پاریس. مشکلاتی که با همسرش داشته. 
-
-
-
-آمدند رنج بردند رفتند. این خلاصه یک داستان چینی است و حسم به این کتاب هم این بود.
-
-
-
-مسکوب سال ۹۴ همین را می‌گوید.
-
-
+آمدند رنج بردند رفتند. این خلاصه یک داستان چینی است و حسم به این کتاب هم این بود. مسکوب سال ۹۴ همین را می‌گوید.
 
 پیتر وربیک - PETER-PAUL VERBEEK - فیلسوف تکنولوژی - از نسل سوم فیلسوف‌های انگلیسی است. جریان سوم فلسفه تکنولوژی می‌خواهد به اخلاق تکنولوژی جواب بدهد. ایده‌ای هست که می‌گوید: تکنولوژی دارد ما را می‌سازد. این نسل سوم تحت تاثیر هایدگر می‌خواهند تعریف دیگری از تکنولوژی ارائه کنند که نقش ما را در این فرایند برجسته می‌کند. صحبتشون این است که بله تکنولوژی هست که شکل می‌دهد ولی باید در نظر بگیریم که انسان و تکنولوژی همیشه یک ترکیبی را ایجاد می‌کنند که حاصلش خیلی از تغییرات تکنولوژیک هست. 
-
 
 [What things do](https://www.psupress.org/books/titles/0-271-02539-5.html)
 
 [Moralizing Technology](https://press.uchicago.edu/ucp/books/book/chicago/M/bo11309162.html)
 
 
-۶- نسرین شکوری:(https://www.nytimes.com/column/ezra-klein-podcast) ازرا کلاین شو] - Ezra Klein - درباره استرس و اضطراب می‌گفت که این عادت است و چگونه می‌توان آن را از یاد برد. با آقایی (https://www.nytimes.com/2021/04/20/opinion/ezra-klein-podcast-judson-brewer.html)مصاحبه] کرده بود که کتابی در این زمینه داشت. چطوری کسی که مدام دچار نگرانی می‌شود. می‌گفت کسانی که بیشتر رویکرد حل مساله دارند دچار این  مشکل می‌شوند. آدمی که مدام می‌خواهد همه مشکلات را حل کند وقتی با مشکلی روبرو می‌شود که نمی‌تواند آن را حل کند، راه حلش حداقل نگران شدن درباره آن است. 
+۶- نسرین شکوری: [ازرا کلاین شو](https://www.nytimes.com/column/ezra-klein-podcast) - Ezra Klein - درباره استرس و اضطراب می‌گفت که این عادت است و چگونه می‌توان آن را از یاد برد. با آقایی [مصاحبه](https://www.nytimes.com/2021/04/20/opinion/ezra-klein-podcast-judson-brewer.html) کرده بود که کتابی در این زمینه داشت. چطوری کسی که مدام دچار نگرانی می‌شود. می‌گفت کسانی که بیشتر رویکرد حل مساله دارند دچار این  مشکل می‌شوند. آدمی که مدام می‌خواهد همه مشکلات را حل کند وقتی با مشکلی روبرو می‌شود که نمی‌تواند آن را حل کند، راه حلش حداقل نگران شدن درباره آن است. 
 
+۷- ابوذر: فالو کردن افراد حاضر در گروه باعث شده مطالب بهتری رو در طول روزم ببینم. یائو میازاکی - [Hayao Miyazaki](https://en.wikipedia.org/wiki/Hayao_Miyazaki) کارگردان ژاپنی که حدودا 80 ساله هست. اوایل کارش انیماتور و تصویرگر و داستان‌نویس بوده ولی الان کارگردان فیلم‌های بلند هست. توی انیمه‌های هایدی و بابا لنگ دراز کار کرده ولی چند ساله استودیوی خودش رو راه انداخته و حدودا 11 فیلم ساخته و 2 تا اسکار برده. ایشون یه دنیای رویایی رو توی انیمیشن‌هاش می‌سازه که باورپذیره. قهرمان‌های داستان‌هاش معمولا دختر بچه‌هاس. فیلم‌هایی که زیر پوست آدم می‌ره و تا چند روز ذهن شما رو درگیر می‌کنه. اگر به انیمیشن دیدن علاقه دارید احتمالاً لذت ببرید از کارش. استودیوی آقای میازاکی اسمش هست [جیبوری](https://en.wikipedia.org/wiki/Studio_Ghibli). دنبال کردن شخصیت‌ها و داستان‌هاش واقعاً لذت‌بخشه به‌خصوص برای بچه‌ها و البته برای بزرگترها. معروف‌ترین فیلم My Neighbor Totoro هست. فیلم دیگه‌ی جالب‌اش Kiki's Delivery Service هست. برای کسانی که تولید محتوا می‌کنن هم جالبه این آدم. اون پروسه‌ای که طی می‌کنه جالبه. از یه تصویر مثل ایستگاه اتوبوس به سمت ساخت یه داستان رفته. همیشه یه دفترچه‌ی ایده داره که مثلاً اگر یه جایی یه ایده به ذهنش برسه می‌ره اون رو توی اون می‌نویسه و بعداً استفاده می‌کنن ازش. توی یوتیوب می‌شه خیلی چیز در موردش پیدا کرد. مستندی هم ازش توی شبکه NHK ژاپن ساخته شده به نام [10 Years with Hayao Miyazaki](https://www3.nhk.or.jp/nhkworld/en/ondemand/program/video/10yearshayaomiyazaki/?type=tvEpisode&) که 4 تا اپیزود 45 دقیقه‌ای داره و تقریباً 10 سال دنبال‌اش کردن و جزئیاتی از زندگی‌اش رو تعریف کردن.
 
-
-۷- ابوذر: فالو کردن افراد حاضر در گروه باعث شده مطالب بهتری رو در طول روزم ببینم. یائو میازاکی - (https://en.wikipedia.org/wiki/Hayao_Miyazaki)Hayao Miyazaki] کارگردان ژاپنی که حدودا 80 ساله هست. اوایل کارش انیماتور و تصویرگر و داستان نویس بوده ولی الان کارگردان فیلم های بلند هست. توی انیمه های هایدی و بابا لنگ دراز کار کرده ولی چند ساله استودیوی خودش رو راه انداخته و حدودا 11 فیلم ساخته و 2 تا اسکار برده. ایشون یه دنیای رویایی رو توی انیمیشن هاش میسازه که باور پذیره. قهرمان های داستان هاش معمولا دختر بچه هاس. فیلم هایی که زیر پوست آدم میره و تا چند روز ذهن شما رو درگیر میکنه. اگر به انیمیشن دیدن علاقه دارید احتمالا لذت ببرید از کارش. استودیوی آقای میازاکی اسمش هست ((https://en.wikipedia.org/wiki/Studio_Ghibli)جیبوری]). دنبال کردن شخصیت ها و داستان هاش واقعا لذت بخشه به خصوص برای بچه ها و البته برای بزرگتر ها. معروف ترین فیلم My Neighbor Totoro هست. فیلم دیگه ی جالبش (Kiki's Delivery Service) هست. برای کسانی که تولید محتوا میکنن هم جالبه این آدم. اون پروسه ای که طی میکنه جالبه. از یه تصویر مثل ایستگاه اتوبوس به سمت ساخت یه داستان رفته. همیشه یه دفترچه ی ایده داره که مثلا اگر یه جایی یه ایده به ذهنش برسه میره اون رو توی اون مینویسه و بعدا استفاده میکنن ازش. توی یوتیوب میشه خیلی چیز در موردش پیدا کرد. مستندی هم ازش توی شبکه NHK ژاپن ساخته شده به نام 10 (https://www3.nhk.or.jp/nhkworld/en/ondemand/program/video/10yearshayaomiyazaki/?type=tvEpisode&)Years with Hayao Miyazaki] که 4 تا اپیزود 45 دقیقه ای داره و تقریبا 10 سال دنبالش کردن و جزئیاتی از زندگیش رو تعریف کردن.
-
-
-
-8- فواد حائری: (https://podcasts.apple.com/us/podcast/genecast-%DA%98%D9%86-%DA%A9%D8%B3%D8%AA/id1540281053)پادکست] فارسی ژن کست که در کمال سادگی یک سری مسائل مربوط به ژن رو با یه زبان قابل درک و فهم و سرعت خیلی خوب بیان کرده.
-
-
+8- فواد حائری: [پادکست فارسی ژن کست](https://podcasts.apple.com/us/podcast/genecast-%DA%98%D9%86-%DA%A9%D8%B3%D8%AA/id1540281053) که در کمال سادگی یک سری مسائل مربوط به ژن رو با یه زبان قابل درک و فهم و سرعت خیلی خوب بیان کرده.
 
 گرگ بریدن و کتاب The Divine Matrix به نویسندگی Gregg Braden - تلاش می‌کند بین اسپریچوالیتی و علم ارتباط برقرار کند.
 
+9- رویا کریمیان: [ماریا پاپوآ ](https://twitter.com/brainpicker) - [کتاب A Velocity of Being](https://www.brainpickings.org/2018/11/20/a-velocity-of-being-letters-to-a-young-reader/) توی این کتاب ایشون اومده طی 8 سال با آدم های معروف صحبت کرده و بهشون گفته یه نامه‌ای برای بچه‌ها بنویسن در مورد کتاب خوندن و توی این کتاب توی هر [صفحه‌اش](https://www.brainpickings.org/2018/11/20/a-velocity-of-being-letters-to-a-young-reader/) یکی از این نامه‌هاس و توی صفحه بعدی‌اش یه نقاشی در مورد اون هست.
 
+آلن دوباتن سازنده پادکست School of Life که توی اون می‌گه چرا همیشه ما با فرد اشتباه ازدواج می‌کنیم؟ جالبه که آلن دوباتن هم توی اون کتاب خانم پاپوآ یه نامه داره. [مقاله دوباتن](https://www.nytimes.com/2016/05/29/opinion/sunday/why-you-will-marry-the-wrong-person.html)
 
-9- رویا کریمیان: (https://twitter.com/brainpicker)ماریا پاپوآ ]- کتاب (https://www.brainpickings.org/2018/11/20/a-velocity-of-being-letters-to-a-young-reader/)A Velocity of Being]  توی این کتاب ایشون اومده طی 8 سال با آدم های معروف صحبت کرده و بهشون گفته یه نامه ای برای بچه ها بنویسن در مورد کتاب خوندن و توی این کتاب توی هر (https://www.brainpickings.org/2018/11/20/a-velocity-of-being-letters-to-a-young-reader/)صفحه] ش یکی از این نامه هاس و توی صفحه بعدیش یه نقاشی درمورد اون هست.
+۱۰- برایان بختیاری: اگر آدم مجبور باشه بین خوشحالی و آزادی یکی رو انتخاب کنه چیکار می‌کنه؟ [کتاب Brave New World](https://fa.wikipedia.org/wiki/%D8%AF%D9%86%DB%8C%D8%A7%DB%8C_%D9%82%D8%B4%D9%86%DA%AF_%D9%86%D9%88) که در سال 1931 نوشته شده توسط Aldous Huxley (دنیای قشنگ نو - ترجمه سعید حمیدیان- صالح حسینی) که یک کتاب تخیلی هست و داره جامعه رو توی سال 2540 رو نشون می‌ده که مثلاً ازدواج اونجا معنی نداره یا بچه‌ها تولید می‌شن و از رحم مادر متولد نمی‌شن و آدم‌ها طبقه‌های مختلفی دارن. این آدم‌ها خوشحال بودن ولی آزادی ندارن.جامعه دیگه‌ای هست که اونجا قوانین فرق داره و آزادی هست ولی خوشحال نیستن.
 
+11- سپیده آلاسی: پیتر سینگر و [کتاب Animal Liberation](https://en.wikipedia.org/wiki/Animal_Liberation_(book)) نسخه جدید این کتاب مقدمه‌ای از یوآل هراری داره در مورد این که ما چطور با اهلی کردن حیوانات تعادل دنیا رو به هم زدیم و چقدر تعداد حیوانات اهلی بیشتر از حیوانات وحشی شده. ترجمه فارسی (کتاب آزادی حیوانات - ترجمه بهنام خداپناه) این کتاب از این نظر برای من مهم بود: کسانی که وقت نداشتن در مورد حقوق حیوانات مطالعه کنن این کتاب کمک می‌کنه. این کتاب یک طرز حرف زدن در مورد حقوق حیوانات رو بهم یاد داد. این که چطور عقیده‌ام رو بگم که مخاطبم اذیت نشه و به فکر واداشته بشه.
 
+[کتاب Made in china](https://www.goodreads.com/en/book/show/49151008-made-in-china) نوشته Amelia Pang که نسبتاً کتاب سنگینی هست که در مورد کمپ‌های کار اجباری توی چین صحبت کرده. تاریخی از این که حزب کمونیست چطور قدرت رو دست گرفته.
 
-آلن دوباتن سازنده پادکست School of Life که توی اون میگه چرا همیشه ما با فرد اشتباه ازدواج میکنیم؟ جالبه که آلن دوباتن هم توی اون کتاب خانم پاپوآ یه نامه داره. مقاله (https://www.nytimes.com/2016/05/29/opinion/sunday/why-you-will-marry-the-wrong-person.html)دوباتن]
+12- نژلا آقایی: پادکست فارسی ژن کست. - [فیلمی به نام SECRETS OF THE SURFACE](https://www.youtube.com/watch?v=NQ2Idvt2fg8) مستندی هست که در مورد زندگی و کار مریم میرزاخانی هست.
 
+بعد از دیدن این مستند: خانه ریاضیات اصفهان جالب بود که در خیلی از جاهای دنیا نیست. غیر از اون توی اصفهان یک خانه نجوم بود که جای خیلی جذابی بود. جالب بود که بیشتر کسانی که در ایران ریاضی می‌خوانند، دخترند. بحثی که هست این است که دختربچه‌ها به سمت ریاضی خواندن تشویق نمی‌شوند. این براشون جالب بود که سیستم ایران چطوری این حس را داده که در ریاضی خوب‌اند.
 
+13- احسان محمودی: [سلسله درس‌گفتار](https://podcasts.google.com/feed/aHR0cHM6Ly9hbmNob3IuZm0vcy8yNzIwN2Y3MC9wb2RjYXN0L3Jzcw==) از دکتر روزبه تویسرکانی. ایشون استاد ریاضیات گسسته بودند. 16 سال پیش ایشون جلساتی رو در حوزه روانکاوی و فرهنگ آغاز کردند که حدود 100 جلسه 2 ساعته روی بحث روانکاوی و تحلیل‌های روانکاوانه‌ی محصولات فرهنگی هست. که مثلاً از فروید شروع می‌شه. برای من به فهم فروید خیلی کمک کرد. بعد هم نوبت به یونگ می‌رسه و ادامه پیدا می‌کنه. بعد به جایی می‌رسه که شروع می‌کنه فیلم‌ها رو بررسی می‌کنه. مثل فیلم‌های تارانتینو، فرهادی، مهرجویی و غیره. مثلاً در مورد فیلم جدایی نادر از سیمین تحلیل‌های خیل خوب و پر هیجانی ارائه می‌ده. با جستجوی «روانکاوی و فرهنگ» توی کست باکس پیدا می‌شه. چند جلسه‌ای که در مورد فروید هست و از جلسات اولش شروع می‌شه رو پیشنهاد می‌کنم.
 
-۱۰- برایان بختیاری: اگر آدم مجبور باشه بین خوشحالی و آزادی یکی رو انتخاب کنه چیکار میکنه؟ (https://fa.wikipedia.org/wiki/%D8%AF%D9%86%DB%8C%D8%A7%DB%8C_%D9%82%D8%B4%D9%86%DA%AF_%D9%86%D9%88)کتاب] Brave New World
+14- عباس سیدین: [جردن پترسون](https://www.jordanbpeterson.com/) - Jordan Peterson - اگر بخوایم این شخص و ایده‌هاش رو خلاصه کنیم اینه که دنبال جواب 2-3 تا سواله یکی این که چطور زندگی‌مون رو بهتر کنیم و چرا باید تلاش کنیم. کتاب‌هاش توی دسته توسعه فردی قرار می‌گیرن مثل [کتاب Beyond Order](https://khoreketab.com/intro-books/beyond-order/) اما فرقی که کتاب‌های آقای پترسون با کتاب‌های توسعه فردی داره اینه که حرف پترسون اینه که از زاویه روانشناسی حرف می‌زنه. ایده‌اش اینه که چرا ما باید زندگی‌مونو بهتر کنیم؟ مثلاً میگه وقتی می‌گیم زندگی سخته یعنی چی؟ قسمت‌های اصلی حرف ایشون اینه نه صحبت‌های جنجالی در مورد برابر و این جور چیزها.
 
+15- محمد علمدار: [سرویس کلاب‌هاوس](https://farsihouse1.club/events.php) فارسی که روم‌های فعال و برنامه‌ریزی شده در اون لیست شده و می‌تونید جستجو کنید و با موضوعات مختلف روم‌های مختلفی رو ببینید و بتونید وارد روم‌ها یا کلاب‌ها بشید.
 
+16- حمید ضیایی: آدام گرنت - Adam Grant - دوباره فکر کن - کتابی که محصول 2020 هست و خیلی جالبه. کتاب قبلیش کتاب ببخش و بگیر  - Give and Take - هست که اون هم پیشنهاد می‌شه. آدم جالبی هست که همه جا فعاله. [پادکستش](https://www.adamgrant.net/podcast/) اسمش Work Life هست. آدم بسیار فعال و باهوشی هست و نگاه امروزی‌ای داره.
 
-که در سال 1931 نوشته شده توسط Aldous Huxley (دنیای قشنگ نو - ترجمه سعید حمیدیان- صالح حسینی) که یک کتاب تخیلی هست و داره جامعه رو توی سال 2540 رو نشون میده که مثلا ازدواج اونجا معنی نداره یا بچه ها تولید میشن و از رحم مادر متولد نمیشن و آدم ها طبقه های مختلفی دارن. این آدم ها خوشحال بودن ولی آزادی ندارن.جامعه دیگه ای هست که اونجا قوانین فرق داره و آزادی هست ولی خوشحال نیستن.
+محمد درویش که جزو فعال‌های محیط زیست توی ایران هستن که توی یونسکو هم هستن.
 
-
-
-11- سپیده آلاسی: پیتر سینگر و کتاب (https://en.wikipedia.org/wiki/Animal_Liberation_(book))Animal Liberation] نسخه جدید این کتاب مقدمه ای از یوآل هراری داره در مورد این که ما چطور با اهلی کردن حیوانات تعادل دنیا رو به هم زدیم و چقدر تعداد حیوانات اهلی بیشتر از حیوانات وحشی شده. ترجمه فارسی (کتاب آزادی حیوانات -ترجمه بهنام خداپناه) این کتاب از این نظر برای من مهم بود: کسانی که وقت نداشتن در مورد حقوق حیوانات مطالعه کنن این کتاب کمک میکنه. این کتاب یک طرز حرف زدن درمورد حقوق حیوانات رو بهم یاد داد. این که چطور عقیده م رو بگم که مخاطبم اذیت نشه و به فکر واداشته بشه.
-
-
-
-(https://www.goodreads.com/en/book/show/49151008-made-in-china)کتاب] Made in china نوشته Amelia Pang که نسبتا کتاب سنگینی هست که در مورد کمپ های کار اجباری توی چین صحبت کرده. تاریخی از این که حزب کمونیست چطور قدرت رو دست گرفته.
-
-
-
-12- نژلا آقایی: پادکست فارسی ژن کست. - (https://www.youtube.com/watch?v=NQ2Idvt2fg8)فیلمی] به نام SECRETS OF THE SURFACE مستندی هست که در مورد زندگی و کار مریم میرزاخانی هست.
-
-
-
-بعد از دیدن این مستند: خانه ریاضیات اصفهان جالب بود که در خیلی از جاهای دنیا نیست. غیر از اون توی اصفهان یک خانه نجوم بود که جای خیلی جذابی بود. جالب بود که بیشتر کسانی که در ایران ریاضی می‌خوانند، دخترند. بحثی که هست این است که دختربچه‌ها به سمت ریاضی خواندن تشویق نمی‌شوند. این براشون جالب بود که سیستم ایران چطوری این حس را داده که در ریاضی خوبند. 
-
-
-
-13- احسان محمودی: (https://podcasts.google.com/feed/aHR0cHM6Ly9hbmNob3IuZm0vcy8yNzIwN2Y3MC9wb2RjYXN0L3Jzcw==)سلسله ]درس گفتار از دکتر روزبه تویسرکانی. ایشون استاد ریاضیات گسسته بودند. 16 سال پیش ایشون جلساتی رو در حوزه روانکاوی و فرهنگ آغاز کردند که حدود 100 جلسه 2 ساعته روی بحث روانکاوی و تحلیل های روانکاوانه ی محصولات فرهنگی هست. که مثلا از فروید شروع میشه. برای من به فهم فروید خیلی کمک کرد. بعد هم نوبت به یونگ میرسه و ادامه پیدا میکنه. بعد به جایی میرسه که شروع میکنه فیلم ها رو بررسی میکنه. مثل فیلم های تارانتینو، فرهادی، مهرجویی و غیره. مثلا در مورد فیلم جدایی نادر از سیمین تحلیل های خیل خوب و. پر هیجانی ارائه میده. با جستجوی «روانکاوی و فرهنگ» توی کست باکس پیدا میشه. چند جلسه ای که در مورد فروید هست و از جلسات اولش شروع میشه رو پیشنهاد میکنم.
-
-
-
-14- عباس سیدین: (https://www.jordanbpeterson.com/)جردن پترسون] - Jordan Peterson - اگر بخوایم این شخص و ایده هاش رو خلاصه کنیم اینه که دنبال جواب 2-3 تا سواله یکی این که چطور زندگیمون رو بهتر کنیم و چرا باید تلاش کنیم. کتاب هاش توی دسته توسعه فردی قرار میگیرن مثل (https://khoreketab.com/intro-books/beyond-order/)کتاب ]Beyond Order اما فرقی که کتاب های آقای پترسون با کتاب های توسعه فردی داره اینه که حرف پترسون اینه که از زاویه روانشناسی حرف میزنه. ایده ش اینه که چرا ما باید زندگیمونو بهتر کنیم؟ مثلا میگه وقتی میگیم زندگی سخته ینی چی؟قسمت های اصلی حرف ایشون اینه نه صحبت های جنجالی درمورد برابر و این جور چیزها.
-
-
-
-15- محمد علمدار: (https://farsihouse1.club/events.php)سرویس] کلاب‌هاوس فارسی که روم های فعال و برنامه ریزی شده در اون لیست شده و میتونید جستجو کنید و با موضوعات مختلف روم های مختلفی رو ببینید و بتوید وارد روم ها یا کلاب ها بشید.
-
-
-
-16- حمید ضیایی: آدام گرنت - Adam Grant - دوباره فکر کن - کتابی که محصول 2020 هست و خیلی جالبه. کتاب قبلیش کتاب ببخش و بگیر  - Give and Take - هست که اون هم پیشنهاد میشه. آدم جالبی هست که همه جا فعاله. (https://www.adamgrant.net/podcast/)پادکستش] اسمش Work Life هست. آدم بسیار فعال و باهوشی هست و نگاه امروزی ای داره.
-
-
-
-محمد درویش که جزو فعال های محیط زیست توی اران هستن که توی یونسکو هم هستن.
-
-
-
-گرگ مک گوئن نویسنده (https://fidibo.com/book/98945-%D8%A7%D8%B5%D9%84-%DA%AF%D8%B1%D8%A7%DB%8C%DB%8C)کتاب] اصل گرایی که روی همین موضوع اصل گرایی کار میکنه و هسته حرف اصلیش اینه که اصل گرایی رویکرد نه گفتن به هر چیز اضافی هست که وقت ما رو میگیره.(https://gregmckeown.com/podcast/) پادکست] هم دارن What’s Essential. توی یه قسمتش هم با کال نیوپورت نویسنده کتاب کار عمیق صحبت کرده. کتاب جدیدی هم به اسم () داره. به نظر میرسه در مورد ساده سازی کارهای مهم صحبت میکنه.
-
-
+گرگ مک گوئن نویسنده [کتاب اصل‌گرایی](https://fidibo.com/book/98945-%D8%A7%D8%B5%D9%84-%DA%AF%D8%B1%D8%A7%DB%8C%DB%8C) که روی همین موضوع اصل‌گرایی کار می‌کنه و هسته حرف اصلی‌اش اینه که اصل‌گرایی رویکرد نه گفتن به هر چیز اضافی هست که وقت ما رو می‌گیره. [پادکست](https://gregmckeown.com/podcast/) هم دارن What’s Essential. توی یه قسمتش هم با کال نیوپورت نویسنده کتاب کار عمیق صحبت کرده. کتاب جدیدی هم به اسم () داره. به نظر می‌رسه در مورد ساده‌سازی کارهای مهم صحبت می‌کنه.
 
 پادکست پیدایش در مورد توسعه فردی
 
+17- ثمین آیانی فرد: پیتر سینگر نویسنده کتاب Why Vegan? - یک سایت مناسب [Healthline](https://www.healthline.com/nutrition)
 
+وحید مرتضوی توی Letterbox فیلم‌هایی که چند بار دیده رو در موردشون ریویو می‌نویسه. برای کسانی که می‌خوان فیلم‌های خوب و بهتری ببینن منبع مناسبیه.
 
-17- ثمین آیانی فرد: پیتر سینگر نویسنده کتاب Why Vegan? - یک سایت مناسب (https://www.healthline.com/nutrition)Healthline]
+18- گیتی عاصمی: [پادکستی](https://www.npr.org/podcasts/474377890/but-why-a-podcast-for-curious-kids) برای بچه‌ها به اسم But why? که میاد به سوالاتی که بچه‌ها دارن جواب می‌دن. مثلاً سوال شکلات چطوری به وجود میاد و همچین سوالاتی. مخاطب هدف‌شون تا رنج سنی 8-9 سال هست. پادکست خیلی جذابیه. که شاید برای بزرگسالان هم شنیدنی باشه. وبسایتش هم خیلی جالبه. که پروسه یادگیری رو برای بچه‌ها ساده‌تر و هدفمندتر می‌کنه. اگر سر و کارتون با کودکانه یه نگاهی به وبسایت این پادکست بندازید که خیلی چیز کاربردی‌ای هست.
 
+19- مریم ماه: کتاب Made in china که توی ایران کتابی به همین عنوان چاپ شده که در مورد پیشرفت‌های چین مثبت حرف زده. این اون کتاب نیست و فرق می‌کنه.
 
+[کتاب The Code Breaker](https://www.simonandschuster.com/books/The-Code-Breaker/Walter-Isaacson/9781982115852) که ایزاکسون - [Walter Isaacson](https://en.wikipedia.org/wiki/Walter_Isaacson) - در مورد پیشرفت علم و تکنولوژی و تغییر ژن هست. علم خیلی پیشرفته‌تر از این هست که شما فکرش رو بکنید. بنابراین نمی‌شه علم الان رو با علم 5 سال پیش مقایسه کنیم. پیشگام تغییر ژن خانم جنیفر لوندا (؟) هست که با گروهی محقق نشستن تحقیق کردن تا بتونن مشکلاتی رو برطرف کنن.
 
-وحید مرتضوی توی Letterbox فیلم هایی که چند بار دیده رو در موردشون ریویو مینویسه. برای کسانی که میخوان فیلم های خوب و بهتری ببینن منبع مناسبیه.
+20- محمد خدادادی: اتاقی که چهارشنبه‌ها برگزار می‌شه به اسم «سعدی‌خوانی» که به سعدی می‌پردازند.
 
+در مورد کاانال یوتیوب محمد خدادادی: با توجه به این که موسیقی سنتی بعد از انقلاب جایگاهی پیدا کرد که یه مدل خشک پیدا کرد، من سعی کردم توی کانال یوتیوبم برم سراغ استفاده از دستگاه در موسیقی سنتی که به طور ساده توضیح بدیم.
 
+#کیا رو دنبال می‌کنی؟ از کیا یاد می‌گیری؟ - جلسه شماره ۱۱
 
-18- گیتی عاصمی: (https://www.npr.org/podcasts/474377890/but-why-a-podcast-for-curious-kids)پادکستی] برای بچه ها به اسم But why? که میاد به سوالاتی که بچه ها دارن جواب میدن. مثلا سوال سکلات چطوری به وجود میاد و همچین سوالاتی. مخاطب هدفشون تا رنج سنی 8-9 سال هست. پادکست خیلی جذابیه. که شاید برای بزرگسالان هم شنیدنی باشه. وبسایتش هم خیلی جالبه. که پروسه یادگیری رو برای بچه ها ساده تر و هدفمند تر میکنه. اگر سر و کارتون با کودکانه یه نگاهی به وبسایت این پادکست بندازید که خیلی چیز کاربردی ای هست.
+**این هفته هم درباره‌ی آدم‌های جالبی حرف می‌زنیم که دنبال‌شون می‌کنیم و ازشون یاد می‌گیریم.**
 
+**پنجشنبه ۱۶ اردیبهشت۱۴۰۰ - ۱۱ شب به وقت تهران**
 
+۱- علی بندری: [ماریا پاپوآ ](https://twitter.com/brainpicker) - Maria Popova یک [بلاگ](https://www.brainpickings.org/) خیلی خوب داره. ایشون یه چیزی که یه جایی می‌خونه یا با افکار یکی که آشنا می‌شه میاد در موردش می‌نویسه. با این ایده که به بقیه معرفی کنه. اما جالبه که موضوعات سختی رو انتخاب می‌کنه یا آدم‌های خاصی رو که پیدا کردن‌شون راحت نیست. حرف‌هایی رو می‌زنه که عمیق هست و خوندن‌شون یه تمرکزی لازم داره. مدل کار این بلاگ هم دونیشنی هست و تبلیغی قبول نمی‌کنه. برای کسی که حوصله مطالب طولانی داره و خبر روز هم نیست پیشنهاد می‌شه. مثلاً لیست کتاب‌های محبوب‌اش توی زمان‌های مختلف رو گفته. طراح هم هست و طرح‌هاش توی بلاگ‌اش هست. جاهای دیگه هم می‌نویسه و توییتر هم داره.
 
-19- مریم ماه: کتاب Made in china که توی ایران کتابی به همین عنوان چاپ شده که در مورد پیشرفت های چین مثبت حرف زده. این اون کتاب نیست و فرق میکنه.
+2- پیمان بشردوست: [دکتر مجید تفرشی](https://twitter.com/majidtafreshi?lang=en) تاریخ‌دان که توی انگلیس دکترای تاریخ گرفتن و توی سازمان اسناد و مدارک ملی ایران بودن. توی تاریخ معاصر ایران کتاب‌هایی که هست مبتنی بر یک سری کتاب‌های مرجع هست. اما کمتر ارجاع به اسناد داریم. کاری که دکتر تفرشی انجام می‌دن اینه که اسناد رو از آرشیو اسناد خارج می‌کنن. مثلاً درمورد اسناد در مورد جداشدن بحرین از ایران یا کنفرانس گوادلوپ. این جور اسناد رو از آرشیوهای انگلیس خارج می‌کنن و در موردش صحبت می‌کنن. کتاب‌های مشهوری هم نوشتن. مقالات و سخنرانی‌های ایشون رو پیشنهاد می‌کنم. مثلاً در مورد 28 مرداد 1332 با اطمینان از واژه کودتا صحبت نمی‌کنن و این بی‌طرف بودن رو نشون می‌ده. یا مثلاً در مورد کنفرانس گوادلوپ که گفته می‌شه توی اون کنفرانس سران کشورهای بزرگ در مورد آینده ایران در زمان انقلاب تصمیم گرفتن، ایشون بر اساس اسناد این ادعا رو رد می‌کنن. توی کلاب‌هاوس هم هستن.
 
+[ویم هوف Wim Hof](https://www.wimhofmethod.com/) آقایی هست اهل هلند که بهش می‌گن مرد یخی که رکورد گینس داره برای موندن توی سرما و آب یخ. متدی داره ایشون برای نفس گرفت و مراقبه که شما چطور آماده بشید برای تحمل سرما. امام تحمل سرما تاث روحی داره. و همچنین ایشون یه جورایی داره حد های قابل تحمل برای انسان‌ها رو به چالش می‌کشه. کتابی هم داره که مشهوره و درمورد این مسائل صحبت کرده. ولی به زبان هلندی هست. توی یوتیوب هم ویدیوهای زیادی هست که درمورد متدی که دارن صحبت می‌کنن.
 
+[کانال یوتیوب Behind the Mask](https://www.youtube.com/channel/UCplA0OS3jhCjC3gK-5PdCMw) برای کسانی که به مستندهای حیات وحش به خصوص برای زیر آب علاقه دارن. مثلاً میرن از ماری که زیر رودخونه آمازون هست یا مثلاً کوسه‌هایی که توی جنوب شرق آسیا هستن.
 
-(https://www.simonandschuster.com/books/The-Code-Breaker/Walter-Isaacson/9781982115852)کتاب] The Code Breaker که ایزاکسون - (https://en.wikipedia.org/wiki/Walter_Isaacson)Walter Isaacson] - در مورد پیشرفت علم و تکنولوژی و تغییر ژن هست. علم خیلی پیشرفته تر از این هست که شما فکرش رو بکنید. بنابراین نمیشه علم الان رو با علم 5 سال پیش مقایسه کنیم. پیشگام تغییر ژن خانم جنیفر لوندا (؟) هست که با گروهی محقق نشستن تحقیق کردن تا بتونن مشکلاتی رو برطرف کنن.
+3- زهرا نظری: [دنیل کانمن Daniel Kahneman](https://en.wikipedia.org/wiki/Daniel_Kahneman) که روانشناسی هست که نوبل اقتصاد برد چون کارش خیلی تاثیرگذار بود توی تئوری‌های رفتار انسانی. ایده‌اش این بود که وقتی در مورد شادی توی زندگی صحبت می‌کنن 2 مدل داره. یکی در مورد وقتی هست که اون فعالیت اتفاق می‌افته و در مورد این که بعداً درموردش چی فکر می‌کنید این حس شادی با اون حس شادی لحظه‌ای فرق می‌کنه. مثلاً خیلی از سفرهایی که ما می‌ریم برای خاطره‌های بعدش هست. چیزی که راجع به این آدم خیلی خاص هست اینه که آدم‌هایی که توی این زمینه کار می‌کنن خیلی زیادن ولی آقای کانمن کارهاش رو با یک سری آزمایش‌های روان‌شناسی حرف‌اش رو بهتون اثبات می‌کنه. کتابی داره به اسم Thinking, Fast and Slow](https://en.wikipedia.org/wiki/Thinking,_Fast_and_Slow). که خیلی مشهوره. کتاب جدیدش هم داره میاد به اسم [Noise](https://www.amazon.com/Noise-Human-Judgment-Daniel-Kahneman/dp/0316451401) که پیش‌فروش‌اش شروع شده. مصاحبه‌های خیلی جالبی داره. برعکس یوآل هراری که بیشتر فلسفی حرف می‌زنه ولی آقای کانمن بیشتر علمی حرف می‌زنه. ویدیوهای خوبی ازش روی یوتیوب هست. کسانی که دوست دارن می‌تونن باشگاه کتابخونی داشته باشن و در کنار زهرا این کتاب رو بخونن. می‌تونید به زهرا توی [توییتر](https://twitter.com/zahranazari1) پیام بدید. مثالی که آقای کانمن می‌زنه: درمورد این که تجربه آدم‌ها چه تاثیری توی حس‌هاشون می‌ذارن. و این رو با مثال‌های مختلف توضیح می‌ده. یه [تد تاک](https://www.ted.com/talks/daniel_kahneman_the_riddle_of_experience_vs_memory?utm_campaign=tedspread&utm_medium=referral&utm_source=tedcomshare) هم هست راجع به همون تعریف‌های هپینس از کانمن که پیشنهاد می‌شه ببینید.
 
+4- کوشیار عظیمیان: 4 تا پادکست هست که معمولا گوش می‌کنم:
 
+|  Jason Calacanis کسی که توی کار مدیا بوده و چیزی حدود 10 ساله پادکستی داره به نام [This Weekend startup](https://thisweekinstartups.com/) که هر هفته یکی از فاندرهای استارتاپ‌ها رو میاره مثال فاندر اوبر رو آورده خیلی سال پیش یا فاندر ایستاگرام رو باهاش مصاحبه کرده. اپیزودش با فاندر اوبر رو خیلی پیشنهاد می‌کنم. چند بار ایلان ماسک رو آورده که خیلی جالبی بوده. با فاندر اتریوم صحبت کرده.
 
-20- محمد خدادادی: اتاقی که چهارشنبه ها برگزار میشه به اسم «سعدی خوانی» که به سعدی میپردازند.
+پادکستی که همین شخص با چند نفر دیگه راجع به تکنولوژی و سیاست و این صحبت می‌کنن به نام [all in](https://podcasts.apple.com/us/podcast/all-in-with-chamath-jason-sacks-friedberg/id1502871393)
 
+پادکستی که بهترین پادکستی هست که در زمینه تک و کریپتو و اینا هست. سازنده این پادکست [Lex Fridman](https://lexfridman.com/podcast/) هفته‌ای یک روم توی کلاب هاوس با کوشیار دارن.
 
+[پادکست Pivot](https://podcasts.voxmedia.com/show/pivot) که راجع به تک و مسائل سوشیال 2 روز در هفته پخش می‌شه.
 
-درمورد کاانال یوتیوب محمد خدادادی: با توجه به این که موسیقی سنتی بعد از انقلاب جایگاهی پیدا کرد که یه مدل خشک پیدا کرد، من سعی کردم توی کانال یوتیوبم برم سراغ استفاده از دستگاه در موسیقی سنتی که به طور ساده توضیح بدیم.
+5- بردیا دوستی: [Timnit Gebru](https://twitter.com/timnitGebru?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) آدمی که جدیداً خیلی خبرساز شد چون جدیداً از گوگل جدا شد. خانمی اهل اتیوپی هست که از استنفورد فارغ‌التحصیل شده و با یکی از خفن‌ترین آدم‌های AI کار کرده. کاری که این آدم می‌کنه اخلاق در هوش مصنوعی هست. مقالات‌اش خیلی قابل فهم هست. هشدار زیادی می‌ده در مورد هوش مصنوعی که همه چیز رو ما داریم با هوش مصنوعی بررسی می‌کنیم مثل مصاحبه استخدام شرکت‌ها. توی مقالات‌شون در مورد اشتباهات هوش مصنوعی صحبت می‌کنه.
 
 
-
-
-
-
-
-کیا رو دنبال می‌کنی؟ از کیا یاد می‌گیری؟ - جلسه شماره ۱۱
-
-
-
-
-این هفته هم درباره‌ی آدم‌های جالبی حرف می‌زنیم که دنبالشون می‌کنیم و ازشون یاد می‌گیریم.
-
-
-
-
-پنجشنبه ۱۶ اردیبهشت۱۴۰۰ - ۱۱ شب به وقت تهران
-
-
-
-
-۱- علی بندری: (https://twitter.com/brainpicker)ماریا پاپوآ ] - Maria Popova یک (https://www.brainpickings.org/)بلاگ] خیلی خوب داره. ایشون یه چیزی که یه جایی میخونه یا با افکار یکی که آشنا میشه میاد درموردش مینویسه. با این ایده که به بقیه معرفی کنه. اما جالبه که موضوعات سختی رو انتخاب میکنه یا آدم های خاصی رو که پیدا کردنشون راحت نیست. حرف هایی رو میزنه که عمیق هست و خوندنشون یه تمرکزی لازم داره. مدل کار این بلاگ هم دونیشنی هست و تبلیغی قبول نمیکنه. برای کسی که حوصله مطالب طولانی داره و خبر روز هم نیست پیشنهاد میشه. مثلا لیست کتاب های محبوبش توی زمان ها مختلف رو گفته. طراح هم هیست و طرح هاش توی بلاگش هست. جاهای دیگه هم مینویسه و توییتر هم داره.
-
-
-
-
-2- پیمان بشردوست: دکتر (https://twitter.com/majidtafreshi?lang=en)مجید تفرشی] تاریخ دان که توی انگلیس دکترای تاریخ گرفتن و توی سازمان اسناد و مدارک ملی ایران بودن. توی تاریخ معاصر ایران کتاب هایی که هست مبتنی بر یک سری کتاب های مرجع هست. اما کمتر ارجاع به اسناد داریم. کاری که دکتر تفرشی انجام میدن اینه که اسناد رو از آرشیو اسناد خارج میکنن. مثلا درمورد اسناد درمورد جداشدن  بحرین از ایران یا کنفرانس گوادلوپ. این جور اسناد رو از آرشیوهای انگلیس خارج میکنن و درموردش صحبت میکنن. کتاب های مشهوری هم نوشتن. مقالات و سخنرانی های ایشون رو پیشنهاد میکنم. مثلا درمورد 28 مرداد 1332 با اطمینان از واژه کودتا صحبت نمیکنن و این بی طرف بودن رو نشون میده. یا مثلا درمورد کنفرانس گوادلوپ که گفته میشه توی اون کنفرانس سران کشورهای بزرگ درمورد آینده ایران در زمان انقلاب تصمیم گرفتن، ایشون بر اساس اسناد این ادعا رو رد میکنن. توی کلاب هاوس هم هستن.
-
-
-
-ویم هوف (https://www.wimhofmethod.com/)Wim Hof] آقایی هست اهل هلند که بهش میگن مرد یخی که رکورد گینس داره برای موندن توی سرما و آب یخ. متدی داره ایشون برای نفس گرفت و مراقبه که شما چطور آماده بشید برای تحمل سرما. امام تحمل سرما تاث روحی داره. و همچنین ایشون یه جورایی داره حد های قابل تحمل برای انسان ها رو به چالش میکشه. کتابی هم داره که مشهوره و درمورد این مسائل صحبت کرده. ولی به زبان هلندی هست. توی یوتیوب هم ویدیوهای زیادی هست که درمورد متدی که دارن صحبت میکنن.
-
-
-
-کانال (https://www.youtube.com/channel/UCplA0OS3jhCjC3gK-5PdCMw)یوتیوب] Behind the Mask برای کسانی که به مستندهای حیات وحش به خصوص برای زیر آب علاقه دارن. مثلا میرن از ماری که زیر رودخونه آمازون هست یا مثلا کوسه هایی که توی جنوب شرق آسیا هستن.
-
-
-
-3- زهرا نظری: دنیل کانمن (https://en.wikipedia.org/wiki/Daniel_Kahneman)Daniel Kahneman] که روانشناسی هست که نوبل اقتصاد برد چون کارش خیلی تاثیرگذار بود توی تئوری های رفتار انسانی. ایده ش این بود که وقتی درمورد شادی توی زندگی صحبت میکنن 2 مدل داره. یکی درمورد وقتی هست که اون فعالیت اتفاق میوفته و درمورد این که بعدا درموردش چی فکر میکنید این حس شادی با اون حس شادی لحظه ای فرق میکنه. مثلا خیلی از سفرهایی که ما میریم برای خاطره های بعدش هست. چیزی که راجع به این آدم خیلی خاص هست اینه که آدم هایی که توی الین زمینه کار میکنن خیلی زیادن ولی آقای کانمن کارهاش رو با یک سری آزمایش های روان شناسی حرفش رو بهتون اثبات میکنه. کتابی داره به اسم (https://en.wikipedia.org/wiki/Thinking,_Fast_and_Slow)Thinking, Fast and Slow]. که خیلی مشهوره. کتاب جدیدش هم داره میاد به اسم (https://www.amazon.com/Noise-Human-Judgment-Daniel-Kahneman/dp/0316451401)Noise] که پیش فروشش شروع شده. مصاحبه های خیلی جالبی داره. برعکس یوآل هراری که بیشتر فلسفی حرف میزنه ولی آقای کانمن بیشتر علمی حرف میزنه. ویدیوهای خوبی ازش روی یوتیوب هست. کسانی که دوست دارن میتونن باشگاه کتابخونی داشته باشن و در کنار زهرا این کتاب رو بخونن. میتونید به زهرا توی (https://twitter.com/zahranazari1)توییتر ]پیام بدید. مثالی که آقای کانمن میزنه: درمورد این که تجربه آدم ها چه تاثیری توی حس هاشون میذارن. و این رو با مثال های مختلف توضیح میده. یه (https://www.ted.com/talks/daniel_kahneman_the_riddle_of_experience_vs_memory?utm_campaign=tedspread&utm_medium=referral&utm_source=tedcomshare)تد تاک ]هم هست راجع به همون تعریف‌های هپینس از کانمن که پیشنهاد میشه ببینید.
-
-
-
-4- کوشیار عظیمیان: 4 تا پادکست هست که معمولا گوش میکنم:
-
-
-
-|  Jason Calacanisکسی که توی کار مدیا بوده و چیزی حدود 10 ساله پادکستی داره به نام (https://thisweekinstartups.com/)This Weekend startup] که هر هفته یکی از فاندرهای استارتاپ ها رو میاره مثال فاندر اوبر رو آورده خیلی سال پیش یا فاندر ایستاگرام رو باهاش مصاحبه کرده. اپیزودش با فاندر اوبر رو خیلی پیشنهاد میکنم.  چند بار ایلان ماسک رو آورده که خیلی جالبی بوده. با فاندر اتریوم صحبت کرده.
-
-
-
-پادکستی که همین شخص با چند نفر دیگه راجع به تکنولوژی و سیاست و این صحبت میکنن به نام (https://podcasts.apple.com/us/podcast/all-in-with-chamath-jason-sacks-friedberg/id1502871393)all in] \
-پادکستی که بهترین پادکستی هست که در زمینه تک و کریپتو و اینا هست. سازنده این پادکست ((https://lexfridman.com/podcast/)Lex Fridman)] هفته ای یک روم توی کلاب هاوس با کوشیار دارن.
-
-
-
-پادکست (https://podcasts.voxmedia.com/show/pivot)Pivot ]که راجع به تک و مسائل سوشیال 2 روز در هفته پخش میشه.
-
-
-
-5- بردیا دوستی: (https://twitter.com/timnitGebru?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor)Timnit Gebru] آدمی که جدیدا خیلی خبرساز شد چون جدیدا از گوگل جدا شد. خانمی اهل اتیوپی هست که از استنفورد فارغ التحصیل شده و با یکی از خفن ترین آدم های AI کار کرده. کاری که این آدم میکنه اخلاق در هوش مصنوعی هست. مقالاتش خیلی قابل فهم هست. هشدار زیادی میده درمورد هوش مصنوعی که همه چیز رو ما داریم با هوش مصنوعی بررسی میکنیم مثل مصاحبه استخدام شرکت ها. توی مقالاتشون درمورد اشتباهات هوش مصنوعی صحبت میکنه.
-
+#####
 
 
 6- پوریا ثابتیان: راسل پیترز russell peters ، ترور نوآ trevor noah استندآپ کمدین هایی دنبال میکنم. از مدل برخوردشون و نوع نگاهشون استفاده میکنم. برای این که حال خوب بوجود بیارم.
