@@ -5,6 +5,7 @@
 
 اینجا فهرستی از محتوای ارائه شده در اتاق «تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟» در کلاب‌هاوس هست که در جلسات هفتگی توسط اعضای کلاب مطرح شده است. جلسات این کلاب هر پنجشنبه برگزار و توسط «علی حجوانی» و «علی بندری» مدیریت می‌شه.
 
+* [جلسه شماره ۲۱](#جلسه-شماره-۲۱)
 * [جلسه شماره ۲۰](#جلسه-شماره-۲۰)
 * [جلسه شماره ۱۹](#جلسه-شماره-۱۹)
 * [جلسه شماره ۱۸](#جلسه-شماره-۱۸)
@@ -25,6 +26,71 @@
 * [جلسه شماره ۳](#جلسه-شماره-۳)
 * [جلسه شماره ۲](#جلسه-شماره-۲)
 * [جلسه شماره ۱](#جلسه-شماره-۱)
+ 
+ # جلسه شماره ۲۱
+
+**این هفته درباره‌ی چیزهای جالبی حرف می‌زنیم که تازگیا خوندیم، تماشا کردیم و شنیدیم و به نظرمون میاد که جالبن.**
+ 
+ **پنجشنبه ۲۴ تیر ۱۴۰۰ ////// ۱۵ ژوئیه ۲۰۲۱ - ۱۱ شب به وقت تهران**
+
+ 
+
+1- عباس سیدین: خبرنامه بالاجی - [کانسپت DAO](https://en.wikipedia.org/wiki/Decentralized_autonomous_organization) - [کتاب The Inevitable](https://www.google.ca/books/edition/The_Inevitable/4bogDAAAQBAJ?hl=en)
+ 
+2- علی حجوانی: [یوتیوبری به نام اما چمبرلین](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg) که یکی‌اش مشهورترین نوجوان‌های دنیا هست و از سال 2017 کانال‌اش رو شروع کرده و الآن بیشتر از 11 میلیون سابسکرایبر داره. [پادکست (Anything Goes)](https://podcasts.apple.com/us/podcast/anything-goes-with-emma-chamberlain/id1458568923) هم داره. مشهوره به این که همیشه توی ویدیوهاش قهوه می‌خوره. حالا مدت‌هاست اما برند قهوه‌ی خودش به نام [Chamberlain Coffee](https://chamberlaincoffee.com/) رو تولید کرده.
+
+[مقاله‌ای](https://www.theguardian.com/food/2021/jul/06/caffeine-coffee-tea-invisible-addiction-is-it-time-to-give-up) از [Michael Pollan](https://michaelpollan.com/books/) در مورد قهوه، اعتیاد به قهوه و ترک آن.
+
+مستند تینار
+
+عباس سیدین: [مصاحبه مایکل پولن با پادکست جو روگن](https://michaelpollan.com/interviews/the-joe-rogan-experience-michael-pollan/)
+
+ 3- مریم ماه: [کتاب (What Happened to You)](https://www.google.ca/books/edition/What_Happened_to_You/_BreDwAAQBAJ?hl=en&gbpv=1&dq=what+happened+to+you+oprah&printsec=frontcover) از اپرا وینفری در همکاری با روانشناسی به نام [بروس پری](https://www.bdperry.com/) - در مورد این که بحران‌های روانی کودکی چه تاثیری روی رفتار هر فرد توی بزرگسالی اون شخص داشته - پیشنهاد می‌شه [نسخه صوتی‌اش](https://www.audible.ca/pd/What-Happened-to-You-Audiobook/1250260639) رو گوش بدین.
+
+[پادکست ناجی](https://podcasts.apple.com/ca/podcast/naaji-%D9%BE%D8%A7%D8%AF%DA%A9%D8%B3%D8%AA-%D9%81%D8%A7%D8%B1%D8%B3%DB%8C-%D9%86%D8%A7%D8%AC%DB%8C/id1508386872) که خلاصه کتاب تعریف می‌کنه.
+
+[مستند (How to Become a Tyrant)](https://www.netflix.com/ca/title/80989772) در نتفلیکس - چطور دیکتاتورهای بزرگ از زمان هیتلر تا الان تونستن مردم رو همراه خودشون کنن؟
+
+4- شاهین خلیلی پور: [پادکست بعد از 56](http://www.namlik.me/channel/%D8%A8%D8%B9%D8%AF%20%D8%A7%D8%B2%20%D9%BE%D9%86%D8%AC%D8%A7%D9%87%20%D9%88%20%D8%B4%D8%B4) از مجله شبکه آفتاب - اپیزود پیشنهادی: قله کوه یخ
+
+[کتاب حد و مرزهای هنر](https://www.google.ca/books/edition/The_Limits_of_Art/eREJRQAACAAJ?hl=en) ([نسخه فارسی](http://www.bidgolpublishing.com/Book.aspx?Id=1286)) نوشته تزوتان تودوروف - رابطه علت و معلولی بین هنر و سیاست و هنرمند و سیاست‌مدارها
+
+5- شقایق الیزه: [پادکست (The Happiness Lab)](https://www.happinesslab.fm/) از یک استاد دانشگاه هاروارد - موضوعات مربوط به شادی - مناسب برای بهتر شدن زبان انگلیسی
+
+6- علی بندری: [پادکست Radiolab](https://www.wnycstudios.org/podcasts/radiolab)
+
+7- لادن ثمر: [مستند 3 قسمتی the Art of Persia](https://www.bbc.co.uk/iplayer/episodes/m000k48j/art-of-persia) از BBC راجع به تاریخ ایران - [لینک یوتیوب](https://www.youtube.com/watch?v=9MXaCue0MPQ)
+
+[اپرای توراندوت](https://www.metopera.org/season/on-demand/opera/?upc=811357018194) بر اساس داستان گنبد سرخ هفت پیکر نظامی که قراره یکشنبه این هفته به صورت رایگان اجرا بشه.
+[فیلم جدید آنتونی بوردین به نام Roadrunner](https://en.wikipedia.org/wiki/Roadrunner:_A_Film_About_Anthony_Bourdain)
+
+8- آتوسا: آثار کلاسیک مثل شاهزاده و گدا برای نوجوان‌ها - مجموعه کتاب شاهکارهای ادبیات جهان برای نوجوان‌ها
+[کتاب (The Cuckoo Sister)](https://www.google.ca/books/edition/The_Cuckoo_Sister/6tDt-BM98ZUC?hl=en&gbpv=1&dq=the+cuckoo+sister&printsec=frontcover) ترجمه شده به نام [خواهر گم‌شده](https://www.gisoom.com/book/1328423/%DA%A9%D8%AA%D8%A7%D8%A8-%D8%AE%D9%88%D8%A7%D9%87%D8%B1-%DA%AF%D9%85%D8%B4%D8%AF%D9%87/) ترجمه شقایق قندهاری
+
+[کتاب (Chicken Soup for the Soul)](https://www.google.ca/books/edition/Chicken_Soup_for_the_Soul_Hope_Healing_f/hDryxMSO8QUC?hl=en&gbpv=1&dq=chicken+soup+for+the+soul+cancer&printsec=frontcover) - تجربیات و خاطرات کسانی که خودشون یا اطرافیان‌شون با سرطان پستان درگیر بودند.
+
+[لوکلزیو](https://fa.wikipedia.org/wiki/%DA%98%D8%A7%D9%86_%D9%85%D8%A7%D8%B1%DB%8C_%DA%AF%D9%88%D8%B3%D8%AA%D8%A7%D9%88_%D9%84%D9%88%DA%A9%D9%84%D8%B2%DB%8C%D9%88) نویسنده فرانسوی برنده جایزه نوبل - [کتاب ماهی طلایی](https://taaghche.com/book/19282/%D9%85%D8%A7%D9%87%DB%8C-%D8%B7%D9%84%D8%A7%DB%8C%DB%8C)
+
+9- رویا کریمیان: [کتاب (The Secret Superhuman Strength)](https://www.google.ca/books/edition/The_Secret_to_Superhuman_Strength/gAbrDwAAQBAJ?hl=en&gbpv=1&dq=alison+bechdel&printsec=frontcover) نوشته آلیسون بچدل که در طول زندگیش انواع ورزش‌ها رو امتحان کرده و با نگاه طنز در موردشون صحبت کرده. - مصاحبه با نویسنده این کتاب در [پادکست Sway 
+Bechdel Test](https://podcasts.apple.com/us/podcast/sway/id1528594034)
+
+روم کلاب هاوس برای مطالب مناسب کودکان: هر هفته سه شنبه‌ها ساعت 11 شب به وقت ایران
+
+10- ندا: [کتاب چشم سگ](https://fidibo.com/books/author/%D8%B9%D8%A7%D9%84%DB%8C%D9%87-%D8%B9%D8%B7%D8%A7%DB%8C%DB%8C)، کتاب کورسرخی و کتاب کافورپوش از [عالیه عطایی](https://www.instagram.com/alie_ataee/?hl=en) نویسنده افغانستانی - ایرانی
+
+11- احمد کهندل: [کتاب «زمینی نو»](https://taaghche.com/book/25149/%D8%B2%D9%85%DB%8C%D9%86%DB%8C-%D9%86%D9%88) از [اکهارت توله](https://fa.wikipedia.org/wiki/%D8%A7%DA%A9%D9%87%D8%A7%D8%B1%D8%AA_%D8%AA%D9%88%D9%84%DB%8C) در ادامه کتاب «قدرت لحظه حال» از همین نویسنده
+
+پادکست یک بینش
+
+[کتاب «مثبت فکر نکنید»](https://taaghche.com/book/83925/%D9%85%D8%AB%D8%A8%D8%AA-%D9%81%DA%A9%D8%B1-%D9%86%DA%A9%D9%86%DB%8C%D8%AF)
+
+12- محمدرضا: [پلتفرم هاشور](https://hashure.com/) برای دیدن فیلم و مستندهای ایرانی برای داخل ایران
+
+[پلتفرم (Docunight)](https://www.docunight.com/) برای دیدن فیلم و مستندهای ایرانی برای خارج از ایران
+
+13- سپیده آلاسی: [کشتی رافائل](https://en.wikipedia.org/wiki/SS_Raffaello)، کشتی کروز ایتالیایی که سالها پیش در ایران بوده. [مستندی از این کشتی در زیر آب](http://www.raffaellomovie.com). - مجموعه عکس در [یوتیوب](https://www.youtube.com/watch?v=B3mMw3z1HlE) - [پادکست رادیو نیست](http://radionist.com/podcasts/ep21-rafael-ship/) در مورد کشتی رافائل - [برنامه تونل زمان از شبکه منوتو](https://www.manototv.com/episode/8627) در مورد کشتی رافائل
+
+
 
 # جلسه شماره ۲۰
 
