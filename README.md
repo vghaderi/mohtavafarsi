@@ -1,4 +1,4 @@
-<span dir="rtl" align="right">
+ <div dir="rtl" align="right" markdown="1">
 
 # تازگی جالب چی خوندی؟ دیدی؟ شنیدی؟
 
@@ -1680,4 +1680,4 @@ https://cutt.ly/gzT8PSf
  
  [فهرست](#تازگی-جالب-چی-خوندی-دیدی-شنیدی)
 
-</span>
+</div>
