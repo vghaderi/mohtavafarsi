@@ -40,26 +40,36 @@
 [کتاب Catch and Kill](https://www.goodreads.com/book/show/51022071-catch-and-kill) داستانی در مورد نویسنده این مقاله (رونان فارو) که مقاله مشهور در مورد هاروی واینستین رو نوشته - [پادکست Catch & Kill](https://open.spotify.com/show/7DTFS97SNLnOTQYZwznvde)
 
 ۲- علی حجوانی: [گزارش Keeping People Out of Jail Keeps People out of Jail](https://reasonstobecheerful.world/reducing-incarceration-no-prosecuting-minor-non-violent-crimes/) -گزارشی در مورد زندان و بزهکاری در جامعه‌ی آمریکا به ویژه سیاه‌پوستان 
+
 3- محمدرضا فرهادی: [کتاب برلین الکساندر پلاتز](https://www.google.ca/books/edition/Berlin_Alexanderplatz/A2n1QnqhAQgC?hl=en&gbpv=1&dq=berlin+alexanderplatz&printsec=frontcover) ([نسخه فارسی](https://www.iranketab.ir/book/13794-berlin-alexanderplatz)) نوشته آلفرد دوبلین - رمان مشهور و مهم دهه 20 میلادی که جزو 100 رمان برتر قرن 20 هم هست. [مستندی از این کتاب](https://en.wikipedia.org/wiki/Berlin_Alexanderplatz_(miniseries))
 ریموند فیسمن اقتصاددان - [کتاب Economic Gangsters](https://en.wikipedia.org/wiki/Raymond_Fisman) - [کتاب «فساد، آنچه همه باید بدانند.»](https://www.google.ca/books/edition/Economic_Gangsters/P6aaAdc8kUYC?hl=en&gbpv=1&dq=economic+gangsters&printsec=frontcover) - [کتاب (Inner Lives of Market)](https://www.google.ca/books/edition/The_Inner_Lives_of_Markets/mTbXCwAAQBAJ?hl=en&gbpv=1&dq=in+the+lives+of+market&printsec=frontcover) - [کتاب (مرگ‌های ناامیدی)](https://www.30book.com/book/118861/%DA%A9%D8%AA%D8%A7%D8%A8-%D9%85%D8%B1%DA%AF-%D9%87%D8%A7%DB%8C-%D9%86%D8%A7%D8%A7%D9%85%DB%8C%D8%AF%DB%8C-%D8%A7%D8%AB%D8%B1-%D8%A2%D9%86-%DA%A9%DB%8C%D8%B3-%D9%86%D8%A7%D8%B4%D8%B1-%D8%B3%D8%B1%D9%88%D8%B4) نوشته انگس دیتون و آن کیس - [پادکست اکونقال](https://www.instagram.com/econaghal/)
+
 4- حسین کاجی: [بدافزار پگاسوس](https://www.bbc.com/persian/world-57884035) - [کتاب فلسفه تنهایی](https://nashrenow.com/%D9%81%D9%84%D8%B3%D9%81%D9%87/242-%D9%81%D9%84%D8%B3%D9%81%D9%87-%D8%AA%D9%86%D9%87%D8%A7%DB%8C%DB%8C.html) ترجمه خشایار دیهیمی 
 [کتاب سنگی بر گوری](https://taaghche.com/book/287/%D8%B3%D9%86%DA%AF%DB%8C-%D8%A8%D8%B1-%DA%AF%D9%88%D8%B1%DB%8C) از جلال آل احمد در مورد زندگی شخصی جلال.
+
 5- آذین قاسمی: [کتاب «کمونیست رفت و ما خندیدیم»](https://taaghche.com/book/2828/%DA%A9%D9%85%D9%88%D9%86%DB%8C%D8%B3%D9%85-%D8%B1%D9%81%D8%AA%D8%8C-%D9%85%D8%A7-%D9%85%D8%A7%D9%86%D8%AF%DB%8C%D9%85-%D9%88-%D8%AD%D8%AA%DB%8C-%D8%AE%D9%86%D8%AF%DB%8C%D8%AF%DB%8C%D9%85) نوشته اسلاون کولاکویچ از نشر گمان در مورد زندگی یک خبرنگار که توی کشورهای اروپای شرقی بوده.
 [کتاب «جنگ چهره زنانه ندارد.»](https://taaghche.com/book/38652/%D8%AC%D9%86%DA%AF-%DA%86%D9%87%D8%B1%D9%87-%DB%8C-%D8%B2%D9%86%D8%A7%D9%86%D9%87-%D9%86%D8%AF%D8%A7%D8%B1%D8%AF) - [فیلم «Beanpole»](https://www.imdb.com/title/tt10199640/) -  در مورد شرایط زندگی در جامعه کمونیستی
+
 6- زهرا نظری: [پادکست Hidden Brain](https://open.spotify.com/show/20Gf4IAauFrfj7RBkjcWxh) - [اپیزود Is It Better to Know](https://open.spotify.com/episode/5QzA9vf5d5Is3iBhZ4NtfC) - [اپیزود Playing the Gender Card](https://open.spotify.com/episode/0WzfKlgXi983vUrRLZBArX)
+
 7- سارا چوپانی: () کمدینی که بیشتر در مورد تفاوت فرهنگی کشورهای مختلف صحبت می‌کنه.
 [Gad Elmaleh](https://en.wikipedia.org/wiki/Gad_Elmaleh) کمدین مراکشی‌الاصل فرانسوی
 [مجموعه فیلمی به اسم Unorthodox](https://www.netflix.com/title/81019069) در نتفلیکس در مورد تبعیضی که علیه یهودی‌ها بوده و هست.
 [سریالی به اسم Shtisel](https://www.netflix.com/ca/title/81004164) - داستان خانواده‌ای در اسرائیل است که پدر و مادر قواعد سختی برای بچه‌هاشون می‌ذارن.
 [سریال The honorable woman](https://en.wikipedia.org/wiki/The_Honourable_Woman) در مورد جنگ‌های بین اسرائیل و فلسطین
+
 8- وحید قادری: [کتاب «گستره»](https://www.goodreads.com/book/show/41795733-range) - [خلاصه در بی پلاس](https://bpluspodcast.com/podcast/third-season/%DA%AF%D8%B3%D8%AA%D8%B1%D9%87/) - [تدتاک کاسپاروف در مورد شکست خوردنش از هوش مصنوعی](https://www.ted.com/talks/garry_kasparov_don_t_fear_intelligent_machines_work_with_them)
 [سخنرانی آذرخش مکری در مورد اهمیت نویسنده‌های کتاب‌های پرفروش](https://www.youtube.com/watch?v=yWXCTlSo498)
+
 9- طیبه تاج علی بخش: [کتاب How to Avoid a Climate Disaster](https://www.goodreads.com/book/show/52275335-how-to-avoid-a-climate-disaster) از بیل گیتس در مورد تغییرات اقلیمی
 [کتاب Emotional First Aid](https://www.goodreads.com/book/show/16158512-emotional-first-aid) از گای وینچ در مورد مسائل روانی که ما باهاش درگیر می‌شیم و این که چه وقتی باید دنبال درمان‌شون بریم.
 [کتاب The Culture Map](https://www.goodreads.com/book/show/22085568-the-culture-map) از ادین مایر در مورد تفاوت فرهنگ‌ها
 [اتاق روزانه Recap](https://www.clubhouse.com/club/recap) در کلاب هاوس در مورد موضوعات مختلف با حضور کارشناسان هر موضوع
+
 10- نگار عجایبی: مجموعه کتاب دایرة المعارفی از انتشارات نردبان به نام [«زیست ایران»](https://entesharat.com/product/%D8%AC%D9%86%DA%AF%D9%84%E2%80%8C%D9%87%D8%A7%DB%8C-%D8%B2%D8%A7%DA%AF%D8%B1%D8%B3-%D8%B2%DB%8C%D8%B3%D8%AA-%D8%A7%DB%8C%D8%B1%D8%A7%D9%86-2/)
+
 11- نژلا آقایی: [کتاب Love and math](https://www.amazon.ca/Love-Math-Heart-Hidden-Reality/dp/0465050743) نوشته ادوارد فرانکل - [کانال یوتیوب ادوارد فرانکل](https://www.youtube.com/user/edfrenkel) در مورد مسائل ریاضی
+
 12- رضا رضایی: [کتاب آمریکا](https://fidibo.com/book/78896-%DA%A9%D8%AA%D8%A7%D8%A8-%D8%A2%D9%85%D8%B1%DB%8C%DA%A9%D8%A7) اثر ژان بودریار - قرائتی جدید از آمریکا
 
 # جلسه شماره ۲۱
